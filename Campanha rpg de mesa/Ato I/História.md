@@ -49,7 +49,7 @@ Quando a **hidra** emergiu parcialmente da água, **Papabundus**, com um grito d
 Mas a criatura reagiu. Uma de suas cabeças mordeu **Papabundus**, seus dentes venenosos acabaram perfurando a armadura. **Papabundus** soltou um grito de dor, sua respiração se tornando irregular à medida que o veneno começava a paralisá-o.
 
  **Sr. Bigodes** correu, atirando flechas para chamar a atenção da **hidra**.
-*Venha cá, sua lagartixa gigante! Vamos ver se você resiste ao meu pão sem glúten!"* ele provocou, desviando habilmente de cada investida da criatura. A cada salto e manobra, farelos de pão pareciam cair de sua bolsa, marcando um caminho que rapidamente era apagado pelas fortes pisadas da **hidra**.
+*"Venha cá, sua lagartixa gigante! Vamos ver se você resiste ao meu pão sem glúten!"* ele provocou, desviando habilmente de cada investida da criatura. A cada salto e manobra, farelos de pão pareciam cair de sua bolsa, marcando um caminho que rapidamente era apagado pelas fortes pisadas da **hidra**.
 
 Enquanto isso, **Galadriel** invocou magias de cura para estabilizar **Papabundus**. Embora a magia não pudesse neutralizar completamente o veneno, ela o deu força suficiente para se levantar novamente.
 
@@ -65,7 +65,7 @@ Para garantir que a criatura não recuasse, **Kristoff** lançou uma magia de ge
 ## De Volta ao Acampamento
 O grupo retornou ao acampamento, onde foram recebidos por **Raz**, que já havia lidado com as serpes.
 
-*Já sei o que iremos comer na guarda de hoje,"* disse ele, com um sorriso enquanto descamava as serpes e começava a preparar um ensopado.
+*"Já sei o que iremos comer na guarda de hoje,"* disse ele, com um sorriso enquanto descamava as serpes e começava a preparar um ensopado.
 
 **Galadriel**, preocupado com **Papabundus**, anunciou que iria procurar plantas medicinais próximas ao lago. Poucos minutos após sair, **Galadriel** retornaria. Ele encontrou ervas suficientes para criar um antídoto para o veneno da **hidra** e, animado, colheu um pouco mais do que precisava, planejando usá-las no café da manhã do dia seguinte.
 
@@ -90,10 +90,10 @@ Com um dos dragões temporariamente afastado, **Raz** correu para ajudar **Papab
 ### A tempestade de Fogo
 Recuperados, os dois dragões começaram a lançar bolas de fogo intermitentes, coordenando-se em um ataque contínuo. Quando um dragão cuspia fogo, o outro já preparava o próximo disparo, criando uma chuva infernal que cobriu a caverna.
 
-*Nunca acabam, hein?"* murmurou **Sr. Bigodes**, rolando para trás de uma rocha para evitar as chamas.
+*"Nunca acabam, hein?"* murmurou **Sr. Bigodes**, rolando para trás de uma rocha para evitar as chamas.
 
 **Nicol Bolas**, com um tom confiante, avançou para a linha de frente.
-*Deixem comigo! Sou imune ao fogo!"*
+*"Deixem comigo! Sou imune ao fogo!"*
 
 Infelizmente, ele não percebeu que, junto das bolas de fogo, os dragões também lançavam pedras incandescentes a alta velocidade. As rochas o atingiram com força, desequilibrando-o e arrancando uma risada nervosa de **Sr. Bigodes.**
 *"Imune ao fogo, sim. Mas não a pedras, né?"*
