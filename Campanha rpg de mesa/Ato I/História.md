@@ -46,7 +46,7 @@ Quando a **hidra** emergiu parcialmente da água, **Papabundus**, com um grito d
 
 **Kristoff** avançou, usando sua magia de chamas negras para cauterizar o pescoço da **hidra**, impedindo que a cabeça cortada se regenerasse.
 
-Mas a criatura reagiu. Uma de suas cabeças mordeu **Papabundus**, seus dentes venenosos acabaram perfurando a armadura. **Papabundus** soltou um grito de dor, sua respiração se tornando irregular à medida que o veneno começava a paralisá-o.
+Mas a criatura reagiu. Uma de suas cabeças mordeu Papabundus, seus dentes venenosos acabaram perfurando a armadura. Papabundus soltou um grito de dor, sua respiração se tornando irregular à medida que o veneno o começava a paralisar.
 
  **Sr. Bigodes** correu, atirando flechas para chamar a atenção da **hidra**.
 *"Venha cá, sua lagartixa gigante! Vamos ver se você resiste ao meu pão sem glúten!"* ele provocou, desviando habilmente de cada investida da criatura. A cada salto e manobra, farelos de pão pareciam cair de sua bolsa, marcando um caminho que rapidamente era apagado pelas fortes pisadas da **hidra**.
@@ -65,7 +65,7 @@ Para garantir que a criatura não recuasse, **Kristoff** lançou uma magia de ge
 ## De Volta ao Acampamento
 O grupo retornou ao acampamento, onde foram recebidos por **Raz**, que já havia lidado com as serpes.
 
-*"Já sei o que iremos comer na guarda de hoje,"* disse ele, com um sorriso enquanto descamava as serpes e começava a preparar um ensopado.
+*"Já sei o que iremos comer na guarda de hoje",* disse ele, com um sorriso enquanto descamava as serpes e começava a preparar um ensopado.
 
 **Galadriel**, preocupado com **Papabundus**, anunciou que iria procurar plantas medicinais próximas ao lago. Poucos minutos após sair, **Galadriel** retornaria. Ele encontrou ervas suficientes para criar um antídoto para o veneno da **hidra** e, animado, colheu um pouco mais do que precisava, planejando usá-las no café da manhã do dia seguinte.
 
@@ -76,10 +76,10 @@ O grupo passou a noite curando ferimentos e recuperando forças, sabendo que a l
 ## O Segredo Submerso
 Ao amanhecer, após um rápido café da manhã preparado por **Raz**, enriquecido com as ervas medicinais coletadas por **Galadriel**, o grupo retornou ao **lago Okota**. Para sua surpresa, uma porta luminosa havia surgido no centro das águas, emanando um brilho mágico. A passagem os levou a um corredor seco que conduzia a uma vasta caverna repleta de **dragões faéricos**, criaturas minúsculas e luminosas que flutuavam como joias vivas.
 
-Os pequenos dragões eram inofensivos, mas o grupo logo percebeu que nem todos os habitantes da caverna compartilhavam dessa natureza pacífica. Dois **dragões verdes jovens**, com olhos astutos e presas afiadas, bloquearam o caminho, e sua hostilidade tornou-se evidente quambos rugiram em uníssono, estremecendo as paredes da caverna.
+Os pequenos dragões eram inofensivos, mas o grupo logo percebeu que nem todos os habitantes da caverna compartilhavam dessa natureza pacífica. Dois **dragões verdes jovens**, com olhos astutos e presas afiadas, bloquearam o caminho, e sua hostilidade tornou-se evidente quando rugiram em uníssono, estremecendo as paredes da caverna.
 
 ### O Combate com os Dragões Jovens
-Os dragões pareciam tratar a luta como um jogo cruel, avançando como crianças brincando com a comida. Suas presas buscavam qualquer alvo que estivesse em seu alance, e suas garras arranhavam o chão enquanto corriam em direção ao grupo.
+Os dragões pareciam tratar a luta como um jogo cruel, avançando como crianças brincando com a comida. Suas presas buscavam qualquer alvo que estivesse em seu alcance, e suas garras arranhavam o chão enquanto corriam em direção ao grupo.
 
 **Papabundus** e **Raz**, envoltos por suas cascatas arcanas, reagiram rapidamente. Usando de suas forças, eles seguraram os dragões, contudo a investida das criaturas era incessante. Os jovens dragões avançavam novamente, como se nunca se cansassem. 
 
