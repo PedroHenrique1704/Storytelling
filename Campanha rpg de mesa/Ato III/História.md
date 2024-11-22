@@ -81,7 +81,7 @@ O guarda, inicialmente hesitante, revelou mais do que devia:
 **Drax** retornou ao seu descanso, mantendo a informação consigo.
 
 No entanto, as coisas ficaram ainda mais agitadas quando o rei apareceu para fazer um anúncio inesperado:
-*"Seis competidores perderam a hora. Sua ausência demonstra que não possuem o valor necessário para continuar. Além disso, Sylas Nightbreeze e Garrok Bloodfang, tendo eliminado dois competidores cada, avançam diretamente para a próxima rodada."*
+*"Seis competidores perderam a hora. Sua ausência demonstra que não possuem o valor necessário para continuar. Além disso, **Sylas Nightbreeze** e **Garrok Bloodfang**, tendo eliminado dois competidores cada, avançam diretamente para a próxima rodada."*
 
 A multidão murmurou em frustração, mas logo voltou a vibrar quando a arena começou a se transformar para o primeiro combate.
 
@@ -97,7 +97,7 @@ A arena se moldou em um campo de plataformas flutuantes suspensas sobre um mar d
 
 **Karnak** atacava com força bruta, fazendo com que as plataformas tremessem, mas **Drax** aparava cada investida com técnica impecável. Quando **Karnak** tentou um golpe horizontal, **Drax** girou para o lado e desferiu uma martelada lateral que o desequilibrou.
 
-*"Você é forte,"* disse **Drax**, *"mas não forte o suficiente."*
+*"Você é forte",* disse **Drax**, *"mas não forte o suficiente."*
 
 Com um movimento rápido, ele golpeou **Karnak** com a lateral do martelo, jogando-o para fora da plataforma. O orc caiu na lava, mas a magia da arena o salvou, deixando-o apenas com uma camada de fuligem e seu orgulho ferido.
 
@@ -149,7 +149,7 @@ O primeiro combate do dia já prometia ser um espetáculo memorável:
 ### **Primeiro Duelo: Drax contra Darius Stoneheart**
 O chão da arena começou a brilhar em vermelho enquanto a magia a moldava novamente em um campo de plataformas flutuantes sobre um mar de lava. **Drax**, o anão guerreiro, e **Darius**, o anão paladino, eram veteranos dessa configuração, e ambos pareciam prontos para o desafio.
 
-**Drax** subiu ao campo com um sorriso confiante, enquanto Darius avançava com a expressão séria de um verdadeiro campeão. Assim que a trombeta soou, os dois começaram a caminhar lentamente em direção um ao outro, medindo os passos e avaliando suas posturas.
+**Drax** subiu ao campo com um sorriso confiante, enquanto **Darius** avançava com a expressão séria de um verdadeiro campeão. Assim que a trombeta soou, os dois começaram a caminhar lentamente em direção um ao outro, medindo os passos e avaliando suas posturas.
 
 Quando estavam próximos, ambos aumentaram a velocidade, avançando em um frenesi que culminou em uma colisão titânica. Suas armas se chocaram com um som ensurdecedor, cada golpe acompanhado de faíscas e estalos que ecoavam pela arena.
 
@@ -193,7 +193,7 @@ Com as plataformas balançando violentamente, **Sr. Bigodes** percebeu que não 
 ## Um anúncio surpresa: Sylas Desclassificado
 Antes do próximo combate, o rei subiu ao palanque com uma expressão séria.
 
-*"Sylas Nightbreeze foi preso por participar de um esquema de apostas e tentar subornar nossos guardas. Sua desclassificação é imediata!"*
+*"**Sylas Nightbreeze** foi preso por participar de um esquema de apostas e tentar subornar nossos guardas. Sua desclassificação é imediata!"*
 
 Com **Sylas** fora, restavam apenas dois competidores: **Drax** e **Garrok Bloodfang.**
 
@@ -329,7 +329,7 @@ Com formação defensiva, o grupo avançou pela caverna, passando por corredores
 ## A Sala do Trono
 No salão seguinte, três figuras se destacavam:
 
-* Dois hobgoblins, criaturas mais altas e robustas que goblins comuns, com armaduras vermelhas e espadas afiadas que pareciam pulsar com energia mágica.
+* Dois hobgoblins, criaturas mais altas e robustas que goblins comuns, vestindo armaduras vermelhas e portando espadas afiadas que pareciam pulsar com energia mágica.
   
 * Sentado em um trono improvisado, um goblin gigante de quatro metros de altura, segurando uma lança colossal. Ele pesava facilmente mais de meia tonelada, sua presença esmagadora dominava a sala.
 
