@@ -15,13 +15,13 @@ No entanto, pouco tempo depois, a calmaria foi rompida. **Sr. Bigodes** percebeu
 
 A situação ficou ainda pior quando quatro serpes marinhas, assustadas pela presença da **hidra**, investiram contra o acampamento".
 
-*“Eu cuido do acampamento! Acabem com o monstro do "lago!”* gritou **Raz**, assumindo uma posição defensiva enquanto seu grupo se dividia para enfrentar a ameaça dupla.
+*"Eu cuido do acampamento! Acabem com o monstro do lago!"* gritou **Raz**, assumindo uma posição defensiva enquanto seu grupo se dividia para enfrentar a ameaça dupla.
 
 ## A Batalha no Lago
 ### Raz contra as serpes mariÀhas
 As quatro serpes, cobertas por suas escamas tão brilhantes como o reflexo da lua na água, avançaram com rapidez. De suas bocas, rajadas de raio explodiram em direção a **Raz**, que reagiu erguendo uma parede de vento com um movimento rápido de sua espada. O vento aparou os ataques elétricos, criando estalos no ar.
 
-*“Não vão passar!”* ele rugiu, sua voz ressoando com poder enquanto energia mágica envolvia seu corpo. Uma cascata arcana o protegia, sua energia fluía como aço inexorável.
+*"Não vão passar!"* ele rugiu, sua voz ressoando com poder enquanto energia mágica envolvia seu corpo. Uma cascata arcana o protegia, sua energia fluía como aço inexorável.
 
 As serpes, no entanto, eram ferozes. Uma delas o mordeu no braço esquerdo, enquanto outra cravou seus dentes em sua perna. A dor era intensa, mas **Raz** parecia indiferente, concentrado em sua magia.
 
@@ -34,7 +34,7 @@ As criaturas tombaram, mas não sem custo. **Raz** estava visivelmente machucado
 ### O grupo contra a Hidra
 Enquanto **Raz** lutava no acampamento, o restante do grupo enfrentava a **hidra**, que ainda mantinha a maior parte de seu corpo submersa. A criatura movia-se com rapidez, dificultando qualquer ataque efetivo.
 
-*“Precisamos trazê-la para fora!”* gritou **Papabundus**, tomando a liderança.
+*"Precisamos trazê-la para fora!"* gritou **Papabundus**, tomando a liderança.
 
 Enquanto a **hidra** avançava, **Nicol Bolas** disparava bolas de fogo de sua varinha, **Sr. Bigodes** e **Galadriel** atiravam flechas contra as cabeças serpentinas da criatura, tentando causar algum dano significativo.
 
@@ -42,14 +42,14 @@ Enquanto a **hidra** avançava, **Nicol Bolas** disparava bolas de fogo de sua v
 
 Quando a **hidra** emergiu parcialmente da água, **Papabundus**, com um grito de esforço, desferiu um golpe com sua espada, acertando uma das cabeças já machucada. Ele puxou a **hidra** para a margem com um movimento poderoso, derrubando-a no chão.
 
-*“Agora!”* gritou **Papabundus**.
+*"Agora!"* gritou **Papabundus**.
 
 **Kristoff** avançou, usando sua magia de chamas negras para cauterizar o pescoço da **hidra**, impedindo que a cabeça cortada se regenerasse.
 
 Mas a criatura reagiu. Uma de suas cabeças mordeu **Papabundus**, seus dentes venenosos acabaram perfurando a armadura. **Papabundus** soltou um grito de dor, sua respiração se tornando irregular à medida que o veneno começava a paralisá-o.
 
  **Sr. Bigodes** correu, atirando flechas para chamar a atenção da **hidra**.
-*“Venha cá, sua lagartixa gigante! Vamos ver se você resiste ao meu pão sem glúten!”* ele provocou, desviando habilmente de cada investida da criatura. A cada salto e manobra, farelos de pão pareciam cair de sua bolsa, marcando um caminho que rapidamente era apagado pelas fortes pisadas da **hidra**.
+*Venha cá, sua lagartixa gigante! Vamos ver se você resiste ao meu pão sem glúten!"* ele provocou, desviando habilmente de cada investida da criatura. A cada salto e manobra, farelos de pão pareciam cair de sua bolsa, marcando um caminho que rapidamente era apagado pelas fortes pisadas da **hidra**.
 
 Enquanto isso, **Galadriel** invocou magias de cura para estabilizar **Papabundus**. Embora a magia não pudesse neutralizar completamente o veneno, ela o deu força suficiente para se levantar novamente.
 
@@ -65,7 +65,7 @@ Para garantir que a criatura não recuasse, **Kristoff** lançou uma magia de ge
 ## De Volta ao Acampamento
 O grupo retornou ao acampamento, onde foram recebidos por **Raz**, que já havia lidado com as serpes.
 
-*“Já sei o que iremos comer na guarda de hoje,”* disse ele, com um sorriso enquanto descamava as serpes e começava a preparar um ensopado.
+*Já sei o que iremos comer na guarda de hoje,"* disse ele, com um sorriso enquanto descamava as serpes e começava a preparar um ensopado.
 
 **Galadriel**, preocupado com **Papabundus**, anunciou que iria procurar plantas medicinais próximas ao lago. Poucos minutos após sair, **Galadriel** retornaria. Ele encontrou ervas suficientes para criar um antídoto para o veneno da **hidra** e, animado, colheu um pouco mais do que precisava, planejando usá-las no café da manhã do dia seguinte.
 
@@ -90,18 +90,18 @@ Com um dos dragões temporariamente afastado, **Raz** correu para ajudar **Papab
 ### A tempestade de Fogo
 Recuperados, os dois dragões começaram a lançar bolas de fogo intermitentes, coordenando-se em um ataque contínuo. Quando um dragão cuspia fogo, o outro já preparava o próximo disparo, criando uma chuva infernal que cobriu a caverna.
 
-*“Nunca acabam, hein?”* murmurou **Sr. Bigodes**, rolando para trás de uma rocha para evitar as chamas.
+*Nunca acabam, hein?"* murmurou **Sr. Bigodes**, rolando para trás de uma rocha para evitar as chamas.
 
 **Nicol Bolas**, com um tom confiante, avançou para a linha de frente.
-*“Deixem comigo! Sou imune ao fogo!”*
+*Deixem comigo! Sou imune ao fogo!"*
 
 Infelizmente, ele não percebeu que, junto das bolas de fogo, os dragões também lançavam pedras incandescentes a alta velocidade. As rochas o atingiram com força, desequilibrando-o e arrancando uma risada nervosa de **Sr. Bigodes.**
-*“Imune ao fogo, sim. Mas não a pedras, né?”*
+*"Imune ao fogo, sim. Mas não a pedras, né?"*
 
 ### O Último Truque dos Dragões
 Apesar da resistência do grupo, os dragões começaram a carregar um golpe final: uma bola de fogo gigantesca, muito maior do que as anteriores. A luz avermelhada preenchia a caverna, e o calor tornou-se quase insuportável.
 
-*“Isso não é bom!”* gritou **Galadriel**, puxando todos para trás.
+*"Isso não é bom!"* gritou **Galadriel**, puxando todos para trás.
 
 O grupo se escondeu atrás de **Nicol Bolas**, que, mesmo atingido, permaneceu firme como uma barreira improvisada. As chamas brilhavam nos olhos dos dragões, que rugiam em uníssono enquanto lançavam seu ataque.
 
