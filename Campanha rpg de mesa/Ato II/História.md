@@ -3,11 +3,11 @@ O dirigível cruzava os céus como uma majestosa fortaleza voadora, cortando as 
 
 **Papabundus**, com sua voz firme e presença de liderança, descreveu os três barões que governavam **Franca**:
 
-* **O Barão da Fumaça**, enigmático e controlando um vasto império de automatos e indústrias.
+* **O Barão da Fumaça**, enigmático e controlando um vasto império de autômatos e indústrias.
 * **O Barão da Moeda**, um mercador inescrupuloso que preferia a neutralidade desde que pudesse lucrar.
 * O próprio **Papabundus**, conhecido como o **Barão do Trigo**, cuja riqueza vinha de seus vastos campos e sua habilidade política.
 
-Ao pousar, o grupo foi recebido por carruagens luxuosas e um mordomo que os conduziu diretamente à mansão de **Papabundus**. A cidade era um espetáculo estranho e eficiente, com automatos metálicos realizando a maior parte do trabalho manual. Na mansão, cada membro do grupo recebeu um quarto e ainda havia tempo para descansar até o banquete.
+Ao pousar, o grupo foi recebido por carruagens luxuosas e um mordomo que os conduziu diretamente à mansão de **Papabundus**. A cidade era um espetáculo estranho e eficiente, com autômatos metálicos realizando a maior parte do trabalho manual. Na mansão, cada membro do grupo recebeu um quarto e ainda havia tempo para descansar até o banquete.
 
 ## Mistérios na Mansão
 Enquanto o grupo relaxava, **Nicol Bolas**, sempre curioso, encontrou uma fonte mágica nos jardins. Algo o atraía, e antes que pudesse entender o que era, desmaiou. **Raz**, observando tudo pela janela, saltou do segundo andar para socorrer seu companheiro. **Sr. Bigodes**, fiel ao seu instinto felino, observava do teto pronto para agir. Após alguns segundos **Nicol Bolas** acordou e murmurou sobre uma voz feminina, mas não se lembrava do que fora dito.
@@ -25,7 +25,7 @@ Mas nem tudo era o que parecia. Durante a noite, enquanto todos aparentemente do
 
 **Papabundus** estava encolhido em posição fetal dentro de um tronco de árvore gigantesco. Seu corpo parecia fundir-se à madeira, enquanto um brilho esverdeado pulsava em sua pele pálida. Era evidente que ele estava drenando energia vital da árvore, como um parasito em simbiose.
 
-*"Isso é... esquisito até para mim,"* murmurou **Raz**, incrédulo.
+*"Isso é... esquisito até para mim",* murmurou **Raz**, incrédulo.
 
 Antes que pudessem continuar observando, uma empregada da mansão apareceu de repente. Seus olhos brilhavam com uma fúria sobrenatural enquanto levantava uma mão, conjurando uma rajada mágica que lançou **Nicol Bolas** violentamente para trás.
 
@@ -40,41 +40,41 @@ Finalmente, **Papabundus** suspirou, percebendo que não podia mais esconder a v
 
 Ele revelou sua condição vampírica, mas explicou detestar o gosto do sangue humano. Por isso, utilizava uma árvore mágica plantada em sua mansão. Essa árvore, encantada por antigos druidas, permitia que ele absorvesse energia vital sem necessidade de se alimentar diretamente de outros seres vivos.
 
-*"Os empregados que viram na mansão,"* continuou ele, *"são lobisomens e vampiros leais a mim. Eles têm total liberdade, mas preferem viver aqui, onde podem trabalhar sem serem perseguidos."*
+*"Os empregados que viram na mansão",* continuou ele, *"são lobisomens e vampiros leais a mim. Eles têm total liberdade, mas preferem viver aqui, onde podem trabalhar sem serem perseguidos."*
 
 Apesar da estranheza da revelação, **Raz** e **Nicol Bolas** entenderam que **Papabundus** não representava uma ameaça para eles — pelo menos por enquanto.
 
-*"Bom, desde que você continue servindo vinho bom e não decida morder ninguém, estamos bem,"* disse **Raz**, tomando um gole da bebida à mesa.
+*"Bom, desde que você continue servindo vinho bom e não decida morder ninguém, estamos bem",* disse **Raz**, tomando um gole da bebida à mesa.
 
 Com isso, a manhã seguiu, o grupo preparando-se para entregar a carta ao **rei** e desvendar os próximos mistérios que aguardavam em **Franca**
 
 ## Encontro com o Rei e a Verdade Sombria
-No castelo, a recepção foi fria e mecânica. Os soldados de carne e osso eram poucos; a maioria era composta por automatos combatentes. Depois de uma longa espera, o grupo foi conduzido ao subsolo. Lá, encontraram o **rei**, ou o que parecia ser ele.
+No castelo, a recepção foi fria e mecânica. Os soldados de carne e osso eram poucos; a maioria era composta por autômatos combatentes. Depois de uma longa espera, o grupo foi conduzido ao subsolo. Lá, encontraram o **rei**, ou o que parecia ser ele.
 
-*"Que bela carta... Pena que vocês não sairão daqui hoje,"* disse o rei com um sorriso sinistro.
+*"Que bela carta... Pena que vocês não sairão daqui hoje",* disse o rei com um sorriso sinistro.
 *"Você não nos deixaria sair por um pedaço de pão? Sem glúten..."* disse **Sr. Bigodes**, recuando para a saída
 
 As palavras de **Sr. Bigodes**, tentando o comprar com pão sem glúten, acabaram por enervaram o possível impostor.
 
 ## O Impostor
-O salão subterrâneo estava saturado com uma atmosfera pesada e úmida. O **rei impostor**, que até então se disfarçava, revelou sua verdadeira forma: um demônio viscoso, uma massa amorfa de lodo pulsante com olhos e bocas emergindo e desaparecendo de sua superfície em um ciclo grotesco. Ao seu lado, dois automatos gigantes avançaram, protegendo seu mestre com força bruta.
+O salão subterrâneo estava saturado com uma atmosfera pesada e úmida. O **rei impostor**, que até então se disfarçava, revelou sua verdadeira forma: um demônio viscoso, uma massa amorfa de lodo pulsante com olhos e bocas emergindo e desaparecendo de sua superfície em um ciclo grotesco. Ao seu lado, dois autômatos gigantes avançaram, protegendo seu mestre com força bruta.
 
 *"Vocês ousam me desafiar?"* gargalhou o demônio, sua voz ecoando em um tom viscoso e abafado.
 
 ### Raz e Galadriel: A Muralha e o Suporte
-**Raz**, ciente de sua posição na linha de frente, ativou toda sua magia. Uma aura elétrica percorreu seu corpo, fortalecendo seus músculos e reflexos enquanto ele se preparava para enfrentar os automatos. Cada golpe que desferia com sua espada parecia uma explosão de força, mas os automatos eram resistentes e contra-atacavam com rajadas de lâminas giratórias e socos devastadores.
+**Raz**, ciente de sua posição na linha de frente, ativou toda sua magia. Uma aura elétrica percorreu seu corpo, fortalecendo seus músculos e reflexos enquanto ele se preparava para enfrentar os autômatos. Cada golpe que desferia com sua espada parecia uma explosão de força, mas os autômatos eram resistentes e contra-atacavam com rajadas de lâminas giratórias e socos devastadores.
 
 **Galadriel** se manteve atrás de **Raz**, conjurando magia de cura para mantê-lo de pé. Contudo, a maldição que carregava cobrava um preço alto: a cada conjuração, sua energia vital parecia se esvair, sua respiração tornava-se ofegante, e suas mãos tremiam.
 
 *"Você não vai cair, **Raz**!"* ele exclamou, lançando um feixe de luz curativa.
 
-Mas a força dos automatos era esmagadora. Um dos golpes acertou **Raz** em cheio, jogando-o ao chão, inconsciente. **Galadriel**, mesmo no limite, usou o restante de sua energia para estabilizá-lo, mas a maldição o atingiu com força total, fazendo-o desmaiar logo em seguida. Seu último ato foi lançar um feitiço de vigor, energizando os aliados restantes.
+Mas a força dos autômatos era esmagadora. Um dos golpes acertou **Raz** em cheio, jogando-o ao chão, inconsciente. **Galadriel**, mesmo no limite, usou o restante de sua energia para estabilizá-lo, mas a maldição o atingiu com força total, fazendo-o desmaiar logo em seguida. Seu último ato foi lançar um feitiço de vigor, energizando os aliados restantes.
 
 ### Nicol Bolas: O Lutador Estratégico
-Enquanto **Raz** e **Galadriel** lidavam com os automatos, **Nicol Bolas** aproveitava brechas para desferir ataques precisos com sua espada. Conhecedor das fraquezas dos autômatos, ele mirava em suas juntas e núcleos energéticos, desativando um a um. Entre cada investida, ele alternava entre seus golpes e rajadas de bolas de fogo lançadas de sua varinha, cobrindo o grupo contra os ataques dos autômatos.
+Enquanto **Raz** e **Galadriel** lidavam com os autômatos, **Nicol Bolas** aproveitava brechas para desferir ataques precisos com sua espada. Conhecedor das fraquezas dos autômatos, ele mirava em suas juntas e núcleos energéticos, desativando um a um. Entre cada investida, ele alternava entre seus golpes e rajadas de bolas de fogo lançadas de sua varinha, cobrindo o grupo contra os ataques dos autômatos.
 
 ### Sr. Bigodes, Kristoff e o Demônio Viscoso
-Com os automatos destruídos, **Sr. Bigodes** e **Kristoff** concentraram seus ataques no demônio viscoso. De longe, **Sr. Bigodes** disparava flechas com precisão, enquanto **Kristoff** conjurava magias sombrias, tentando desestabilizar a criatura.
+Com os autômatos destruídos, **Sr. Bigodes** e **Kristoff** concentraram seus ataques no demônio viscoso. De longe, **Sr. Bigodes** disparava flechas com precisão, enquanto **Kristoff** conjurava magias sombrias, tentando desestabilizar a criatura.
 
 O demônio retaliava arremessando partes de seu corpo contra o grupo. As porções viscosas eram corrosivas, e seu toque dissolvia até o mais resistente dos metais. O grupo precisava se esquivar constantemente para evitar ferimentos fatais.
 
@@ -98,21 +98,21 @@ Quando a poeira baixou, o grupo permaneceu exausto e ferido. Guardas reais chega
 
 *"O que aconteceu aqui?!"* perguntou um deles, claramente atônito.
 
-Os guardas rapidamente trataram os ferimentos do grupo e, ao perceberem o cadáver do demônio e o estado dos automatos destruídos, entenderam que algo sombrio estava por trás dos acontecimentos no castelo.
+Os guardas rapidamente trataram os ferimentos do grupo e, ao perceberem o cadáver do demônio e o estado dos autômatos destruídos, entenderam que algo sombrio estava por trás dos acontecimentos no castelo.
 
 *"Vocês precisam falar com o verdadeiro rei"*, disseram, conduzindo os aventureiros à sala do trono.
 
 *O grupo havia vencido, mas as cicatrizes da batalha, físicas e emocionais, permaneceriam como um lembrete de que a verdadeira luta talvez estivesse apenas começando.*
 
 ## A Princesa e o Pacto com o Mago
-Na sala real, uma área anti-magia selava o poder de todos. O **rei** estava em um estado vegetativo, incapaz de governar. Sua filha, a **princesa**, explicou que demônios haviam infiltrado a corte. Por medo, ela pedira ao Barão da Fumaça que enchesse o exército com automatos.
+Na sala real, uma área anti-magia selava o poder de todos. O **rei** estava em um estado vegetativo, incapaz de governar. Sua filha, a **princesa**, explicou que demônios haviam infiltrado a corte. Por medo, ela pedira ao Barão da Fumaça que enchesse o exército com autômatos.
 
 A **princesa** suplicou ao grupo que encontrasse o antigo mago real, um homem capaz de criar áreas anti-magia e possivelmente a chave para salvar o reino. No entanto, **Raz** e **Nicol Bolas**, em uma tentativa impetuosa de obter informações, chamaram atenção ao escalar o castelo e causar um incidente com os dirigíveis. **Sr. Bigodes** precisou usar toda sua lábia para acalmar os ânimos e evitar represálias.
 
 ## A festa e o Labirinto
 Na mansão, **Papabundus** informou que um nobre daria uma festa no dia seguinte, e que o mesmo tinha conexão com o mago. O grupo infiltrou-se, jogando, conversando, e até servindo como garçons para obter informações. Por fim, descobriram um labirinto nos fundos da propriedade.
 
-* **Kristoff** não é mais visto desde o dia da festa, funcionários dizem ter avistado **Kristoff** saindo da mansão pela noite, com um andar turvo, porém quando foram averiguar **Kristoff** havia desaparecido, deixando para trás somente brazas sobre a grama.
+* **Kristoff** não é mais visto desde o dia da festa, funcionários dizem ter avistado **Kristoff** saindo da mansão pela noite, com um andar turvo, porém quando foram averiguar **Kristoff** havia desaparecido, deixando para trás somente brasas sobre a grama.
 
 O labirinto de espinhos estava repleto de perigos, como mímicos e armadilhas. Após passarem as armadilhas, encontram uma passagem secreta na latrina de um duende (para desgosto de todos), chegaram à caverna do mago.
 
@@ -166,7 +166,7 @@ Com o grupo se reagrupando e o labirinto enfim superado, o próximo passo os lev
 
 Após a batalha, o grupo avançou em direção à casa do mago. Era uma construção simples, mas impregnada de poder mágico. Enquanto se aproximavam, perceberam uma figura na varanda. Era o mago e junto dele... **Sr. Bigodes?**, o comerciante havia deixado o combate pouco antes de seu fim para conversar com o mago e até oferecer a ele um pão sem glúten.
 
-*"Estive assistindo,"* ele disse, sua voz rouca. 
+*"Estive assistindo",* ele disse, sua voz rouca. 
 *"Lutaram bem. Mas vocês trazem o caos por onde passam."*
 
 O mago explicou que aquelas sombras eram espiões enviados pelos demônios que agora controlavam o castelo. Elas provavelmente haviam seguido o grupo desde o labirinto.
@@ -180,12 +180,12 @@ Naquela manhã, o grupo reunira-se na casa do mago para um último café da manh
 
 *"Comam bem"* ,disse o mago, apontando para as armas do grupo. *"Elas brilharão no momento em que mais precisarem. Isso fará a diferença."*
 
-Quando terminaram, o mago ergueu as mãos, murmurando um feitiço. O ambiente à sua volta começou a distorcer-se, até que, em um piscar de olhos, o grupo se viu diante do imponente castelo real, cercado por um exército de automatos.
+Quando terminaram, o mago ergueu as mãos, murmurando um feitiço. O ambiente à sua volta começou a distorcer-se, até que, em um piscar de olhos, o grupo se viu diante do imponente castelo real, cercado por um exército de autômatos.
 
 Na entrada estava **Papabundus IX**, que rapidamente ergueu sua espada e virou-se para o grupo com um semblante sério.
 *"Eu segurarei as forças lá fora. Vocês devem acabar com isso de uma vez por todas."*
 
-Sem dar chance para discussões, ele avançou contra os automatos. O som metálico de lâminas e explosões ecoou enquanto o grupo entrava no castelo
+Sem dar chance para discussões, ele avançou contra os autômatos. O som metálico de lâminas e explosões ecoou enquanto o grupo entrava no castelo
 
 O hall do castelo era um espetáculo de grandiosidade e decadência. Colunas de mármore erguiam-se até um teto alto adornado com vitrais multicoloridos que lançavam luzes tremeluzentes sobre o chão. Bandeiras desbotadas pendiam das paredes, ostentando o brasão do reino. Apesar da beleza, havia algo de opressor no ar: uma sensação de abandono e corrupção, como se o próprio castelo respirasse com dificuldade.
 
