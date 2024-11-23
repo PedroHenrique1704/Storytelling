@@ -18,7 +18,7 @@ A situação ficou ainda pior quando quatro serpes marinhas, assustadas pela pre
 *"Eu cuido do acampamento! Acabem com o monstro do lago!"* gritou **Raz**, assumindo uma posição defensiva enquanto seu grupo se dividia para enfrentar a ameaça dupla.
 
 ## A Batalha no Lago
-### Raz contra as serpes mariÀhas
+### Raz contra as serpes marinhas
 As quatro serpes, cobertas por suas escamas tão brilhantes como o reflexo da lua na água, avançaram com rapidez. De suas bocas, rajadas de raio explodiram em direção a **Raz**, que reagiu erguendo uma parede de vento com um movimento rápido de sua espada. O vento aparou os ataques elétricos, criando estalos no ar.
 
 *"Não vão passar!"* ele rugiu, sua voz ressoando com poder enquanto energia mágica envolvia seu corpo. Uma cascata arcana o protegia, sua energia fluía como aço inexorável.
