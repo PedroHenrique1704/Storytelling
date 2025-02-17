@@ -208,12 +208,8 @@ Porém, o navio não conseguiria atracar diretamente no porto da capital devido 
 
 Enquanto observavam a costa, algo chamou sua atenção:
 
-Uma caverna sombria, parcialmente selada por tábuas improvisadas.
-
+*Uma caverna sombria, parcialmente selada por tábuas improvisadas.
 As madeiras estavam mal pregadas, algumas soltas, como se algo de dentro estivesse tentando sair.
-
 Um brilho sinistro e pulsante podia ser visto por trás das rachaduras. A aura que emanava dali era errada.
-
 Havia algo dentro.
-
-Algo que não deveria ser perturbado.
+Algo que não deveria ser perturbado.*
