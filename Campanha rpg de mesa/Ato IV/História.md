@@ -213,3 +213,334 @@ As madeiras estavam mal pregadas, algumas soltas, como se algo de dentro estives
 Um brilho sinistro e pulsante podia ser visto por trás das rachaduras. A aura que emanava dali era errada.
 Havia algo dentro.
 Algo que não deveria ser perturbado.*
+
+## A DESCIDA À CAVERNA
+O grupo avançou com cautela. **Sr. Bigodes**, liderando a expedição com sua visão felina aguçada, deslizava pelas sombras, examinando cada detalhe da escuridão. A caverna era fria e úmida, com paredes irregulares que pareciam desgastadas pelo tempo. O cheiro de terra antiga misturava-se com algo mais fétido, como carne decomposta há muito esquecida.
+
+*"Nada além de pedras e musgo aqui..."* murmurou **Sr. Bigodes**, avançando mais alguns passos.
+
+Foi então que, no meio da frase, o chão sob seus pés desapareceu.
+
+**Sr. Bigodes** caiu.
+
+Seus reflexos o salvaram – girando no ar, ele pousou de pé em um nível inferior da caverna, deslizando um pouco pelo chão coberto de poeira.
+
+*"Ah, maravilha."*
+
+Lá de cima, os outros viram a cena. A queda não era profunda, apenas alguns metros, mas o local onde **Sr. Bigodes** havia caído era diferente.
+
+Uma construção esquecida jazia ali – paredes de pedra desgastadas, chão coberto de sangue seco e pegadas recentes, como se alguém passasse por ali com frequência. Tochas apagadas alinhavam as paredes, fixadas em suportes enferrujados, suas chamas extintas há muito tempo.
+
+*"Bom... já que ele abriu o caminho, vamos descer."* disse **Drax**, saltando com facilidade para o andar inferior.
+
+**Gorath** e **Nicol Bolas** seguiram logo atrás.
+
+O grupo estava dentro de algo muito mais antigo do que uma simples caverna.
+
+## A fonte sombria
+
+No centro da sala, uma fonte de pedra negra jazia desgastada pelo tempo. A estrutura era decorada com entalhes quase imperceptíveis, representando dragões e garras entrelaçadas. Algo na fonte exalava um poder antigo e silencioso.
+
+O grupo não confiava nela.
+
+*"Isso não está certo."* disse **Gorath**, seus instintos alertando para o perigo.
+
+*"Ah, vamos... é só uma fonte velha."* comentou **Drax**, cruzando os braços.
+
+Enquanto discutiam, **Nicol Bolas** começou a se mover sozinho, como se estivesse sendo atraído para a fonte. Seus olhos estavam fixos na água escura, seu corpo agindo como se não estivesse sob seu controle.
+
+Ele estendeu a mão para tocá-la.
+
+Foi quando ouviu a voz.
+
+*"Vocês estão quase lá... não falhem dessa vez... por favor."*
+
+A mente de **Nicol Bolas** girou. Ele caiu de joelhos, sua visão escurecendo por um instante.
+
+**Drax** foi o primeiro a reagir, avançando e puxando **Nicol Bolas** para trás.
+
+*"Ei Boneco de pau! Acorda!"*
+
+**Nicol Bolas** piscou, recobrando a consciência, ainda atordoado. Ele virou-se para **Sr. Bigodes**, seus olhos sérios e carregados de um peso invisível.
+
+*"A mesma voz..."* murmurou. *"A voz que falou comigo na mansão do Papabundus."*
+
+**Sr. Bigodes** apenas assentiu lentamente, seu rosto inexpressivo, mas seus olhos demonstrando que entendia exatamente o que aquilo significava.
+
+Algo estava se repetindo.
+
+E alguém – ou alguma coisa – estava tentando avisá-los.
+
+## DIVIDINDO O GRUPO
+Duas passagens se abriam diante da fonte. **Nicol Bolas** decidiu seguir sozinho para oeste, enquanto **Drax**, **Gorath** e **Sr. Bigodes** seguiram para o norte.
+
+## A ÁGUA PURIFICADA *(**Nicol Bolas**, caminho oeste)*
+A caverna se dividia novamente. Nicol Bolas percebeu um som suave e contínuo – o gotejar de água corrente.
+
+Seguindo a trilha da umidade, encontrou uma pequena fonte cristalina, em contraste com a escuridão ao redor. O cheiro era puro e revigorante.
+
+Seus instintos e conhecimento arcano rapidamente lhe deram a resposta:
+
+*"Água benta."*
+
+Ele pegou um frasco vazio de sua bolsa – antigamente uma poção de revitalização, agora serviria para armazenar aquele líquido sagrado.
+
+Algo dentro dele dizia que aquilo poderia ser út
+
+
+
+## A PRISÃO DOS MORTOS *(**Drax**, **Gorath** e **Sr. Bigodes**, caminho norte)*
+O corredor longo e estreito levava a uma cela quebrada.
+
+Os restos de uma prisão desmoronada e abandonada estavam ali – barras enferrujadas, algemas caídas no chão, tochas apagadas penduradas em paredes manchadas de sangue envelhecido.
+
+Foi quando ouviram uma voz.
+
+*"O quê...? Tem alguém aí?"*
+
+Eles olharam ao redor. Nada.
+
+*"Aqui, mais embaixo!"*
+
+E então, o viram.
+
+Um esqueleto vivo, apenas da pelve para cima, jazia encostado em uma parede de pedra, os ossos amarelados pelo tempo.
+
+*"Meu deus..."* murmurou **Gorath**, cruzando os braços.
+
+O esqueleto suspirou – ou pelo menos fez um movimento que imitava um suspiro.
+
+*"Faz tempo que não ouço passos por aqui."*
+
+**Drax** ergueu uma sobrancelha e cruzou os braços.
+
+*"Mas o que o senhor faz aqui, Sr. Esqueleto?"*
+
+O esqueleto pareceu refletir.
+
+*"Não sei. Estou aqui há muito tempo... antes, conversavam comigo com frequência. Mas então... ouví passos de metal. Muita gritaria, sons de dor e de espadas cortando carne e pedra. Depois disso, veio o silêncio."*
+
+**Sr. Bigodes**, com um brilho no olhar, ofereceu um pão sem glúten ao esqueleto.
+
+*"Aqui, se quiser."*
+
+O esqueleto ergueu o que um dia foi uma sobrancelha.
+
+*"Bem... eu não como há muito tempo. Na verdade, eu nunca como. Mas agradeço a oferta."*
+
+O silêncio reinou por um instante. **Drax** olhou ao redor, viu ossos espalhados e então teve uma ideia.
+
+Ele pegou a parte inferior de um outro esqueleto e acoplou no novo amigo, além de quebrar as correntes que ainda prendiam sua parte superior à parede.
+
+O esqueleto ficou de pé.
+
+E então, cambaleou desajeitadamente... e caiu de cara no chão.
+
+*"Er... talvez... talvez eu tenha montado errado."* murmurou **Drax**, coçando a cabeça.
+
+**Gorath** e **Sr. Bigodes** colocaram as mãos no rosto ao mesmo tempo, expressões de pura descrença.
+
+O esqueleto agora tinha as pernas viradas para trás.
+
+*"Bom, ao menos agora ele pode andar."* disse **Drax**, satisfeito.
+
+
+
+## O CÍRCULO DO SACRIFÍCIO *(**Nicol Bolas**, caminho oeste)*
+
+O corredor tornava-se cada vez mais sufocante conforme **Nicol Bolas** avançava. A umidade das paredes deu lugar a manchas escuras e o cheiro de terra molhada foi substituído por algo mais denso... e metálico.
+
+O cheiro de sangue envelhecido.
+
+Conforme andava, as paredes pareciam mais estreitas, e as sombras projetadas pelo brilho fraco da sua varinha pulsavam, como se estivessem respirando.
+
+No meio do caminho, uma porta de ferro maciço, sem maçaneta ou fechadura, jazia selada por runas mágicas brilhantes, que tremeluziam em tons de púrpura e verde.
+
+*"Trancada por magia..."* murmurou **Nicol Bolas**, observando os símbolos arcanos que pulsavam em sua superfície.
+
+As runas eram antigas, e ele reconheceu sua complexidade imediatamente.
+
+*"Isso não pode ser quebrado à força."*
+
+Apenas uma chave específica poderia abrir essa porta. Mas onde estaria?
+
+Sem tempo para perder, **Nicol Bolas** continuou avançando pelo corredor, até que a luz no final começou a brilhar mais forte.
+
+Ele segurou sua espada, preparando-se para qualquer coisa.
+
+Ao chegar ao fim, o cenário se abriu para algo que não parecia mais uma caverna.
+
+Era um salão.
+
+O chão era coberto de marcas esculpidas na pedra negra, formando um círculo ritualístico gigantesco, com símbolos estranhos e letras que pareciam se mover sob seu olhar. Era um altar de sacrifício.
+
+O centro do círculo brilhava fracamente, e o sangue seco que cobria os entalhes dava ao local um tom profano.
+
+**Nicol Bolas** engoliu em seco.
+
+Ele conhecia aquele símbolo.
+
+Mas... de onde?
+
+Sua mente buscava desesperadamente a resposta. Aquele emblema, aquele círculo mágico, aquela energia—tudo era assustadoramente familiar.
+
+Ele estendeu a mão para tocá-lo.
+
+Nada aconteceu.
+
+A magia ali estava adormecida. O ritual já havia sido realizado há muito tempo.
+
+Seja o que fosse aquele lugar, não era mais um templo ativo.
+
+Mas a sensação de que alguém – ou algo – ainda observava permaneceu, congelando seus nervos por um breve instante.
+
+Ele deu um último olhar ao altar, sentindo que não havia mais nada a fazer ali.
+
+Então, começou a retornar para a fonte.
+
+
+
+## O DORMITÓRIO ABANDONADO *(**Drax**, **Gorath** e **Sr. Bigodes**, caminho norte)*
+
+Enquanto **Nicol Bolas** seguia por sua trilha, o restante do grupo continuava avançando pela caverna.
+
+O corredor longo e irregular os levou a uma área diferente – o cheiro de umidade agora misturava-se a algo mais forte, como comida estragada.
+
+Os primeiros sinais vieram das caixas quebradas.
+
+Mantimentos jogados ao chão, sacos de grãos rasgados e carne podre espalhada ao redor.
+
+**Sr. Bigodes** torceu o nariz e deu um passo para trás.
+
+*"Vocês estão sentindo esse cheiro?"* perguntou **Gorath**, franzindo o cenho.
+
+*"Sim... comida podre e... com glúten."* murmurou **Sr. Bigodes**, com um olhar de desgosto.
+
+Mais à frente, fornos quebrados permaneciam fixados nas paredes, suas grades metálicas retorcidas pelo tempo.
+
+O único objeto que permanecia intacto era uma bancada de trabalho, repleta de caixas empilhadas sobre ela.
+
+A sensação de que alguém havia passado por ali recentemente era inegável.
+
+**Drax**, curioso, avançou mais e viu que havia algo além das caixas.
+
+*"Tem mais coisas aqui."*
+
+Ele empurrou algumas das caixas, revelando um dormitório abandonado.
+
+O ambiente era claustrofóbico – camas desarrumadas, algumas quebradas, outras cobertas de poeira e trapos velhos.
+
+No centro da sala, três mesas estavam viradas, suas superfícies cobertas de pratos apodrecidos, repletos de restos de comida que ninguém tocava há muito tempo.
+
+Mas uma única mesa, no fundo, chamava atenção.
+
+Ela não estava quebrada.
+
+E sobre ela, havia algo deixado para trás.
+
+**Gorath** aproximou-se e pegou um dos objetos – um pergaminho enrolado.
+
+Ao desenrolá-lo, viu o desenho detalhado de uma fortaleza.
+
+*"Isso é... um mapa."*
+
+**Sr. Bigodes** observou por cima do ombro.
+
+*"Uma planta..."* ele corrigiu.
+
+**Drax**, por sua vez, pegou o outro item deixado sobre a mesa.
+
+Era um livro de couro escuro, velho e desgastado.
+
+Ele o abriu e folheou algumas páginas.
+
+*"É um diário."*
+
+**Gorath** pegou o mapa e o guardou consigo, enquanto **Drax** segurava o diário com uma expressão séria.
+
+*"Vamos voltar e ler isso com o boneco de pau"*
+
+O grupo se virou e começou a caminhar de volta à fonte, sem saber que algo os aguardava.
+
+
+## O DESTINO DO ESQUELETO *(Na fonte, reencontro do grupo)*
+Quando **Drax**, **Gorath** e **Sr. Bigodes** estavam chegando à fonte, ouviram passos apressados.
+
+**Nicol Bolas** corria em sua direção.
+
+*"NÃO, PARA!"* ele gritou, seus olhos arregalados.
+
+O grupo virou a tempo de ver o esqueleto tropeçar...
+
+E cair diretamente na fonte negra.
+
+Assim que tocou a água, seu corpo começou a queimar, ossos dissolvendo-se como se estivessem sendo corroídos por ácido.
+
+O esqueleto não gritou – não teve tempo.
+
+Em questão de segundos, nada restava dele.
+
+**Drax** piscou, depois olhou para **Gorath** e murmurou:
+
+*"Talvez... talvez eu devesse ter deixado ele preso."*
+
+O silêncio caiu entre eles.
+
+Foi **Sr. Bigodes** quem quebrou a tensão, cruzando os braços.
+
+*"Ok... agora sabemos que não é só uma fonte velha e inútil."*
+
+**Gorath** suspirou.
+
+*"Vamos ver o que esse diário tem a dizer."*
+
+Eles se reuniram ao redor de **Drax**, que abriu o livro e começou a ler.
+
+## O diario de Timmie
+
+*15 dias para o festival*
+Hoje, sob o comando do padre **Joseph**, sacrificamos um magnífico pavão de plumas douradas. Ele foi trazido de terras distantes, e suas cores brilhavam sob a luz das tochas. O padre falou sobre como esses tributos fortalecem Demodras e asseguram a proteção do reino. Alguns de nós estão inquietos — há rumores de bandidos rondando as florestas, mas Joseph nos assegurou que a caverna é impenetrável.
+
+*14 dias para o festival*
+A oferenda desta noite foi um tigre branco, uma fera capturada por um dos mercadores que devem sua lealdade ao clero. Seus rugidos ecoaram pela caverna, e suas garras arranharam as pedras do altar até o último momento. Sinto uma estranha tensão no ar. Não apenas eu — vi alguns irmãos olharem para os portões com apreensão. Algo nos observa, tenho certeza.
+
+*13 dias para o festival*
+Hoje, o sacrifício foi uma serpente negra gigante, de olhos brilhantes como estrelas. Joseph a chamou de símbolo dos segredos de Demodras. Quando seu sangue escorreu pelo altar, senti algo — não medo, mas um peso, como se a própria caverna suspirasse. Alguém jurou ter ouvido passos lá fora. Joseph ordenou silêncio e oração.
+
+*12 dias para o festival*
+A oferenda de hoje foi a mais exótica até agora: uma criatura alada, pequena como um corvo, mas com garras afiadas como adagas. **Joseph** disse que ela era sagrada e deveria ser manejada com reverência. No entanto, os murmúrios entre os acólitos cresceram. Alguém viu uma luz distante na floresta, movendo-se rápido demais para ser natural.
+
+*11 dias para o festival*
+O altar recebeu um lobo negro de três patas, capturado em terras amaldiçoadas. Seus uivos foram como gritos de agonia. Durante o ritual, ouvimos sons estranhos do lado de fora — passos pesados, metais rangendo. **Joseph** pareceu hesitar, mas prosseguiu. Quando tudo terminou, ele ordenou que reforçássemos as defesas da caverna. Algo está se aproximando.
+
+*10 dias para o festival*
+A noite foi um caos. Não houve sacrifício, pois automatos surgiram do nada e atacaram nossos portões, seguidos por bandidos armados. Como eles encontraram o lugar? Ninguém sabe. A caverna, que sempre nos pareceu inviolável, agora treme sob seus golpes. **Joseph** lutou com fervor, mas os invasores continuam avançando. Alguns acólitos foram mortos. Eu continuo escrevendo, mesmo ouvindo os gritos.
+
+*9 dias para o festival – Meu Último Registro*
+É o fim. Estamos cercados. O altar de **Demodras** está coberto de sangue, mas não do sacrifício, e sim dos nossos. As paredes da caverna tremem, como se até o Deus Dragão estivesse abandonando-nos. Vejo **Joseph** empunhar sua lâmina cerimonial, mas ele está exausto. Não sei quem sobreviverá para contar essa história. Se alguém encontrar este diário, saiba: tudo foi por Demodras. O preço de sua proteção é maior do que imaginávamos.
+
+*Minha última confissão, por favor...*
+O som do metal contra pedra está mais próximo. Estou escrevendo com pressa, mas algo precisa ser registrado — talvez seja minha única chance de passar esse segredo adiante.
+
+Sob a fonte central da caverna repousa um item raro e poderoso, um presente direto de Demodras. Padre **Joseph** sempre o chamou de *“Coração de Escamas Eternas”*. Ele dizia que, se o altar falhasse, o Coração poderia invocar a fúria de **Demodras** para proteger o reino. Mas acessar a fonte exige a chave mágica, que **Joseph** guarda com zelo.
+
+A chave para a fonte está trancada em sua sala, protegida por feitiços que só podem ser quebrados com a chave dos aposentos dele. Esta última chave está em seus aposentos privados, acima da sala cerimonial do castelo. Só ele pode atravessar os portões sem que as runas o queimem.
+
+O som das portas quebrando me alcança agora. Se não for Demodras que vingará nossos sacrifícios, que seja você.
+
+## A LEITURA TERMINA.
+
+O grupo trocou olhares sérios.
+
+O silêncio que se seguiu não foi apenas de reflexão, mas de algo mais profundo.
+
+Eles sentiam que algo terrivelmente errado estava acontecendo.
+
+E que a resposta poderia estar no Festival de **Mediogalti**.
+
+Sem dizer mais nada, começaram a sair da caverna.
+
+O céu já estava escurecendo.
+
+E, ao longe, a cidade os aguardava... junto com um mistério sombrio.
+
