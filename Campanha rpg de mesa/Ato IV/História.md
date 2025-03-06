@@ -499,27 +499,35 @@ Eles se reuniram ao redor de **Drax**, que abriu o livro e começou a ler.
 ## O diario de Timmie
 
 *15 dias para o festival*
+
 Hoje, sob o comando do padre **Joseph**, sacrificamos um magnífico pavão de plumas douradas. Ele foi trazido de terras distantes, e suas cores brilhavam sob a luz das tochas. O padre falou sobre como esses tributos fortalecem Demodras e asseguram a proteção do reino. Alguns de nós estão inquietos — há rumores de bandidos rondando as florestas, mas Joseph nos assegurou que a caverna é impenetrável.
 
 *14 dias para o festival*
+
 A oferenda desta noite foi um tigre branco, uma fera capturada por um dos mercadores que devem sua lealdade ao clero. Seus rugidos ecoaram pela caverna, e suas garras arranharam as pedras do altar até o último momento. Sinto uma estranha tensão no ar. Não apenas eu — vi alguns irmãos olharem para os portões com apreensão. Algo nos observa, tenho certeza.
 
 *13 dias para o festival*
+
 Hoje, o sacrifício foi uma serpente negra gigante, de olhos brilhantes como estrelas. Joseph a chamou de símbolo dos segredos de Demodras. Quando seu sangue escorreu pelo altar, senti algo — não medo, mas um peso, como se a própria caverna suspirasse. Alguém jurou ter ouvido passos lá fora. Joseph ordenou silêncio e oração.
 
 *12 dias para o festival*
+
 A oferenda de hoje foi a mais exótica até agora: uma criatura alada, pequena como um corvo, mas com garras afiadas como adagas. **Joseph** disse que ela era sagrada e deveria ser manejada com reverência. No entanto, os murmúrios entre os acólitos cresceram. Alguém viu uma luz distante na floresta, movendo-se rápido demais para ser natural.
 
 *11 dias para o festival*
+
 O altar recebeu um lobo negro de três patas, capturado em terras amaldiçoadas. Seus uivos foram como gritos de agonia. Durante o ritual, ouvimos sons estranhos do lado de fora — passos pesados, metais rangendo. **Joseph** pareceu hesitar, mas prosseguiu. Quando tudo terminou, ele ordenou que reforçássemos as defesas da caverna. Algo está se aproximando.
 
 *10 dias para o festival*
+
 A noite foi um caos. Não houve sacrifício, pois automatos surgiram do nada e atacaram nossos portões, seguidos por bandidos armados. Como eles encontraram o lugar? Ninguém sabe. A caverna, que sempre nos pareceu inviolável, agora treme sob seus golpes. **Joseph** lutou com fervor, mas os invasores continuam avançando. Alguns acólitos foram mortos. Eu continuo escrevendo, mesmo ouvindo os gritos.
 
 *9 dias para o festival – Meu Último Registro*
+
 É o fim. Estamos cercados. O altar de **Demodras** está coberto de sangue, mas não do sacrifício, e sim dos nossos. As paredes da caverna tremem, como se até o Deus Dragão estivesse abandonando-nos. Vejo **Joseph** empunhar sua lâmina cerimonial, mas ele está exausto. Não sei quem sobreviverá para contar essa história. Se alguém encontrar este diário, saiba: tudo foi por Demodras. O preço de sua proteção é maior do que imaginávamos.
 
 *Minha última confissão, por favor...*
+
 O som do metal contra pedra está mais próximo. Estou escrevendo com pressa, mas algo precisa ser registrado — talvez seja minha única chance de passar esse segredo adiante.
 
 Sob a fonte central da caverna repousa um item raro e poderoso, um presente direto de Demodras. Padre **Joseph** sempre o chamou de *“Coração de Escamas Eternas”*. Ele dizia que, se o altar falhasse, o Coração poderia invocar a fúria de **Demodras** para proteger o reino. Mas acessar a fonte exige a chave mágica, que **Joseph** guarda com zelo.
