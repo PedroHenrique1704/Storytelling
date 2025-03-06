@@ -33,7 +33,7 @@ Era uma ordem.
 Sem alternativas imediatas, **Lira** sugeriu que passassem a noite na cidade, enquanto providenciava outro meio de transporte.
 
 
-## **A TARDE EM OKENO**
+## **A tarde em Okeno**
 
 Com um dia livre antes da partida, cada um dos aventureiros aproveitou a cidade à sua maneira:
 
@@ -73,7 +73,7 @@ Os aventureiros assentiram.
 O mensageiro se despediu, e o grupo seguiu aproveitando seu último dia na cidade antes da viagem.
 
 
-## UMA PARTIDA IMPROVISADA
+## Uma partida improvisada
 
 Na manhã seguinte, o mensageiro da rainha bateu nas portas de cada um dos aventureiros, acordando-os com um tom firme:
 *“Levantem-se e preparem-se. Partiremos em duas horas.”*
@@ -103,7 +103,7 @@ Do outro lado do barco, **Gorath**, guardando suas coisas perto das camas improv
 **Tipsy**, observando a cena, apenas murmurou para si mesmo:
 *“Pessoas excêntricas hoje, não é mesmo?”*
 
-## O ATAQUE NO MAR
+## O ataque marítimo
 
 A viagem transcorreu sem incidentes por cerca de 12 horas, o mar calmo refletindo o céu estrelado. Muitos dos nobres já haviam se recolhido ao andar inferior, tentando ignorar a realidade de que estavam em um navio mercante ao invés de uma luxuosa embarcação real.
 
@@ -132,7 +132,7 @@ O rugido da criatura que estava abaixo das águas ecoou, um som profundo e vibra
 Mas para os aventureiros, recuar não era uma opção.
 
 
-## O COMBATE
+## O Combate
 ### Primeira Investida: O Impacto Inicial
 
 **Drax** e **Nicol Bolas** foram os primeiros a agir. Cada um empunhou sua arma e atacou um dos tentáculos, cortando profundamente a carne grotesca. Os golpes não foram suficientes para arrancá-los, mas fizeram os tentáculos recuarem momentaneamente antes de voltarem a se agitar furiosamente.
@@ -214,7 +214,7 @@ Um brilho sinistro e pulsante podia ser visto por trás das rachaduras. A aura q
 Havia algo dentro.
 Algo que não deveria ser perturbado.*
 
-## A DESCIDA À CAVERNA
+## A descida à caverna
 O grupo avançou com cautela. **Sr. Bigodes**, liderando a expedição com sua visão felina aguçada, deslizava pelas sombras, examinando cada detalhe da escuridão. A caverna era fria e úmida, com paredes irregulares que pareciam desgastadas pelo tempo. O cheiro de terra antiga misturava-se com algo mais fétido, como carne decomposta há muito esquecida.
 
 *"Nada além de pedras e musgo aqui..."* murmurou **Sr. Bigodes**, avançando mais alguns passos.
@@ -271,10 +271,10 @@ Algo estava se repetindo.
 
 E alguém – ou alguma coisa – estava tentando avisá-los.
 
-## DIVIDINDO O GRUPO
+## A Exploração
 Duas passagens se abriam diante da fonte. **Nicol Bolas** decidiu seguir sozinho para oeste, enquanto **Drax**, **Gorath** e **Sr. Bigodes** seguiram para o norte.
 
-## A ÁGUA PURIFICADA *(**Nicol Bolas**, caminho oeste)*
+## A água purificada *(**Nicol Bolas**, caminho oeste)*
 A caverna se dividia novamente. Nicol Bolas percebeu um som suave e contínuo – o gotejar de água corrente.
 
 Seguindo a trilha da umidade, encontrou uma pequena fonte cristalina, em contraste com a escuridão ao redor. O cheiro era puro e revigorante.
@@ -289,7 +289,7 @@ Algo dentro dele dizia que aquilo poderia ser út
 
 
 
-## A PRISÃO DOS MORTOS *(**Drax**, **Gorath** e **Sr. Bigodes**, caminho norte)*
+## A prisão *(**Drax**, **Gorath** e **Sr. Bigodes**, caminho norte)*
 O corredor longo e estreito levava a uma cela quebrada.
 
 Os restos de uma prisão desmoronada e abandonada estavam ali – barras enferrujadas, algemas caídas no chão, tochas apagadas penduradas em paredes manchadas de sangue envelhecido.
@@ -346,7 +346,7 @@ O esqueleto agora tinha as pernas viradas para trás.
 
 
 
-## O CÍRCULO DO SACRIFÍCIO *(**Nicol Bolas**, caminho oeste)*
+## O altar *(**Nicol Bolas**, caminho oeste)*
 
 O corredor tornava-se cada vez mais sufocante conforme **Nicol Bolas** avançava. A umidade das paredes deu lugar a manchas escuras e o cheiro de terra molhada foi substituído por algo mais denso... e metálico.
 
@@ -400,7 +400,7 @@ Então, começou a retornar para a fonte.
 
 
 
-## O DORMITÓRIO ABANDONADO *(**Drax**, **Gorath** e **Sr. Bigodes**, caminho norte)*
+## O dormitório *(**Drax**, **Gorath** e **Sr. Bigodes**, caminho norte)*
 
 Enquanto **Nicol Bolas** seguia por sua trilha, o restante do grupo continuava avançando pela caverna.
 
@@ -463,7 +463,7 @@ Ele o abriu e folheou algumas páginas.
 O grupo se virou e começou a caminhar de volta à fonte, sem saber que algo os aguardava.
 
 
-## O DESTINO DO ESQUELETO *(Na fonte, reencontro do grupo)*
+## O Reencontro *(Na fonte, reencontro do grupo)*
 Quando **Drax**, **Gorath** e **Sr. Bigodes** estavam chegando à fonte, ouviram passos apressados.
 
 **Nicol Bolas** corria em sua direção.
@@ -528,7 +528,7 @@ A chave para a fonte está trancada em sua sala, protegida por feitiços que só
 
 O som das portas quebrando me alcança agora. Se não for Demodras que vingará nossos sacrifícios, que seja você.
 
-## A LEITURA TERMINA.
+## Fim da leitura.
 
 O grupo trocou olhares sérios.
 
