@@ -538,6 +538,12 @@ O som das portas quebrando me alcança agora. Se não for Demodras que vingará 
 
 ## Fim da leitura.
 
+Sem dizer mais nada, começaram a sair da caverna.
+
+O céu já estava escurecendo.
+
+E, ao longe, a cidade os aguardava... junto com um mistério sombrio.
+
 O grupo trocou olhares sérios.
 
 O silêncio que se seguiu não foi apenas de reflexão, mas de algo mais profundo.
@@ -546,9 +552,296 @@ Eles sentiam que algo terrivelmente errado estava acontecendo.
 
 E que a resposta poderia estar no Festival de **Mediogalti**.
 
-Sem dizer mais nada, começaram a sair da caverna.
+## O caminho para Mediogalt
 
-O céu já estava escurecendo.
+O grupo partiu em direção à cidade, o caminho iluminado apenas pelas estrelas e pelo brilho discreto das tochas distantes. O silêncio era quebrado apenas pelas conversas casuais entre eles, comentando sobre os eventos do dia.
 
-E, ao longe, a cidade os aguardava... junto com um mistério sombrio.
+— *"Que dia... Achei que aquele polvo fosse nos afundar a qualquer momento,"* comentou **Drax**, alongando os ombros como se ainda sentisse o impacto da luta.
+
+— "*E pensar que alguém deliberadamente atraiu aquela coisa..."* murmurou **Nicol Bolas**
+
+— *"E ainda tivemos que atravessar um maldito pântano por horas antes de encontrar a estrada,"* resmungou **Sr. Bigodes**, abanando sua cauda com desdém.
+
+— *"Ao menos os tripulantes sobreviveram,"* disse **Gorath** calmamente, como se o resto dos problemas não fosse digno de sua preocupação.
+
+A conversa seguiu por mais alguns minutos, mas logo foram silenciados pela visão da cidade diante deles.
+
+## Chegada em Mediogalti
+
+Ao passarem pelos portões de **Mediogalti**, a cidade já estava mergulhada em um brilho aconchegante. As ruas estavam calmas pelo horário, mas era impossível não notar as decorações coloridas penduradas entre os edifícios, as luzes mágicas flutuando suavemente pelos postes e as pinturas vibrantes feitas nos muros para o festival.
+
+O aroma de especiarias e flores frescas preenchia o ar, trazendo um sentimento de celebração iminente.
+
+Foi então que, à frente, uma voz familiar ressoou:
+
+— *"Até que enfim vocês chegaram! Que demora, hein?"*
+
+**Tipsy**, o capitão halfling que os trouxe de barco, os esperava com um sorriso travesso e os braços cruzados.
+
+— *"Venham, venham! O rei pediu para levar vocês direto ao salão cerimonial."*
+
+Mesmo um pouco intrigados, o grupo decidiu acompanhar **Tipsy**, caminhando pelo coração da cidade. O festival ainda não havia começado, mas a preparação por toda parte deixava claro que esse seria um evento grandioso.
+
+## O Salão Cerimonial
+O salão cerimonial era um espaço espaçoso e convidativo, iluminado por lanternas de papel suspensas no teto.
+
+As quatro mesas grandes eram um pouco mais baixas que o normal, feitas para que as pessoas se sentassem confortavelmente sobre almofadas macias, permitindo uma conversa mais informal.
+
+Três das mesas já estavam ocupadas. Nobres e mercadores de diferentes regiões conversavam entre si, trocando risadas e brindando.
+
+Na terceira mesa, duas figuras conhecidas conversavam entre si.
+
+**Raz** e **Tif** estavam envolvidos em uma discussão sobre comércio, cada um gesticulando para um mapa sobre a mesa.
+
+Ao avistar o grupo chegando, **Raz** inclinou a cabeça e acenou para eles, enquanto **Tif** apenas lançou um olhar curioso.
+
+— *"Você os conhece?"* perguntou **Raz**, voltando-se para **Tif**.
+
+— *"Só não conheço aquele... boneco?"* **Tif** respondeu, franzindo o cenho.
+
+— *"Ah, sim. Nicol Bolas,"* disse **Raz**, cruzando os braços. *"Eu conheço ele e Sr. Bigodes."*
+
+Eles deram um último olhar para o grupo antes de voltarem à conversa sobre alianças comerciais.
+
+## A Conversa com o Rei
+
+Pouco depois, o rei **Eron** se aproximou da mesa do grupo.
+
+Eron era um homem de postura firme, vestindo trajes azul-escuros com detalhes dourados e brancos, o símbolo de Mediogalti bordado no peito. Ele possuía um olhar experiente, e sua presença naturalmente impunha respeito.
+
+— *"Soube que tiveram uma longa jornada para chegar até aqui,"* disse o rei, com um leve sorriso. *"**Tipsy** me contou sobre seus atos de bravura no barco."*
+
+**Sr. Bigodes** rapidamente tomou a frente, relatando de forma concisa o ataque do monstro marinho, os tentáculos devastadores e como eles trabalharam juntos para evitar o desastre.
+
+Quando terminou, ele sacou de sua bolsa um pão sem glúten, segurando-o diante do rei.
+
+— *"A propósito, Vossa Majestade... um pão sem glúten?"*
+
+O salão ficou em silêncio por um instante.
+
+O rei ergueu uma sobrancelha, claramente pegando o grupo de surpresa com sua resposta:
+
+— *"Eu agradeço, mas já jantei. Talvez outra hora, **Sr. Bigodes**."*
+
+## O Encontro com o Padre Joseph
+Entre conversas casuais, **Drax** ergueu a voz para perguntar sobre o padre **Joseph**, mas antes que pudesse terminar sua frase, as portas do salão cerimonial se abriram.
+
+Uma figura envolta em um manto religioso entrou no recinto.
+
+**Sr. Bigodes** franziu o cenho.
+
+Havia um cheiro estranho no ar.
+
+Não era forte o suficiente para ser alarmante, mas algo estava errado.
+
+O rei notou a chegada do padre e o cumprimentou de longe.
+
+— *"Padre, trabalhou muito hoje, não? Que bom que chegou."*
+
+**Joseph** fez uma leve reverência antes de se dirigir diretamente a **Drax**, que ainda pretendia falar com ele.
+
+— *"Meu caro,"* disse o padre, sua voz suave e cansada, *"adoraria falar com você, mas me encontro exausto após um dia de trabalho árduo. Se ainda desejar conversar, podemos fazê-lo amanhã."*
+
+Sem esperar resposta, o padre subiu as escadas em direção ao seu aposento, deixando para trás um leve rastro de incenso misturado a algo... diferente.
+
+**Sr. Bigodes** sentiu novamente aquele cheiro estranho.
+
+Ele olhou discretamente para **Gorath**, que assentiu como se tivesse percebido a mesma coisa.
+
+## A Noite na Pousada
+O grupo continuou no salão cerimonial por um tempo, conversando com o rei sobre as expectativas para o festival.
+
+Quando **Eron** finalmente decidiu se retirar para o castelo, **Tipsy** se aproximou novamente.
+
+— *"O rei reservou uma pousada para vocês",* disse o halfling, cruzando os braços. **"Por conta das circunstâncias que passaram... Então, vamos?"**
+
+Sem ver motivo para recusar, o grupo seguiu **Tipsy** até a hospedaria.
+
+A pousada era simples, porém aconchegante, e cada um recebeu um quarto individual.
+
+Os lençóis limpos e o cheiro de madeira polida contrastavam com o dia intenso que haviam tido.
+
+Antes de dormir, todos refletiram sobre os acontecimentos, sobre o padre **Joseph**, o cheiro estranho, e o que estava por vir.
+
+Afinal, ainda restavam três dias para o festival...
+
+E algo naquela cidade não parecia certo.
+
+
+## 3 Dias para o festival
+
+### Drax - Entre Guardas e Banquetes
+
+**Drax** passou o dia inteiro no salão cerimonial, onde sua presença já era quase tão comum quanto os próprios guardas.
+
+Jogou dados e cartas, bebeu alegremente, e contou histórias sobre suas batalhas e viagens, sempre exagerando um pouco nos detalhes para garantir boas risadas.
+
+— *“E então... com um único golpe do meu martelo, joguei o ogro direto na fogueira! Ficou mais bem passado que um javali na ceia do rei!”*
+
+Os guardas caíram na gargalhada, brindando com suas canecas.
+
+Durante a tarde, foi convidado a tomar banho com os soldados, um costume da ilha para fortalecer o companheirismo entre guerreiros.
+
+Foi aí que seu conhecimento militar se mostrou útil.
+
+Ao ver os guardas treinando, **Drax** fez observações, apontando falhas nas posturas e sugerindo formas mais eficazes de combate corpo a corpo.
+
+Seu respeito entre os soldados cresceu rapidamente.
+
+Quando a noite caiu, **Drax** ainda estava no salão, agora sentado à mesa com os superiores, compartilhando mais uma rodada de vinho e carne enquanto gargalhava alto o suficiente para fazer as tochas tremerem.
+
+## Nicol Bolas - Um Dia de Observação e Reflexão
+
+### Manhã - Caminhando pelo Bairro Residencial
+
+Após um banho de sol revigorante, **Nicol Bolas** decidiu passear pelo bairro residencial, aproveitando a oportunidade para entender melhor a cidade.
+
+O clima era leve e festivo.
+
+Crianças corriam pelas ruas, as mães penduravam enfeites, e os trabalhadores se dedicavam às decorações do festival, amarrando bandeiras coloridas nos postes e pregando lanternas de papel ao longo das vias.
+
+**Nicol Bolas** caminhava calmamente, observando tudo com um olhar atento, capturando pequenos detalhes que poderiam passar despercebidos por outros.
+
+### Tarde - A Conversa dos Fazendeiros
+Decidindo explorar além dos muros da cidade, **Nicol Bolas** seguiu até a parte rural, onde vastos campos de arroz, trigo e cevada se estendiam até onde seus olhos de madeira podiam ver.
+
+Lá, ele ouviu um rumor entre os fazendeiros.
+
+— *“Alguns trabalhadores faltaram nos últimos dias sem avisar.”*
+
+Um dos agricultores, um homem idoso de chapéu de palha e barba branca, balançou a cabeça em desaprovação.
+
+— *“Essa juventude não quer mais saber de trabalho duro.”*
+
+Outro, cuidando do gado, riu.
+
+— *“Vão ver só quando sentirem falta do pagamento no começo do mês que vem!”*
+
+**Nicol Bolas** apenas ouviu e concordou com a cabeça, sem interromper a conversa.
+
+O som do vento soprando sobre o campo, o cheiro da terra molhada...
+
+Por um momento, uma lembrança distante tentou emergir.
+
+Um grande campo aberto, o sol dourado refletindo no trigo...
+
+Mas, antes que conseguisse agarrar essa memória, ela se dissipou, como um grão de areia levado pelo vento.
+
+Suspirando, ele continuou sua caminhada.
+
+### Noite - O Festival Ganha Forma
+Quando voltou ao centro da cidade, já era noite.
+
+A praça estava praticamente pronta.
+
+As tendas e mesas já estavam montadas, e o cenário de festa começava a tomar forma.
+
+Mas, agora, o espaço estava silencioso.
+
+Não havia mais trabalhadores – todos já haviam ido descansar.
+
+**Nicol Bolas** passou as mãos pelo tecido de uma das tendas.
+
+— *"Falta pouco..."* ele murmurou para si mesmo, sentindo uma leve inquietação no ar.
+
+## Gorath e Sr. Bigodes - Investigação e Encontros
+### Manhã - Café da Manhã e Primeiras Investigações
+Pela manhã, **Gorath** e **Sr. Bigodes** se encontraram na pousada.
+
+Enquanto **Gorath** comia um verdadeiro banquete, **Sr. Bigodes** saboreava um pão sem glúten com leite, tranquilo como sempre.
+
+— *"Vamos investigar à tarde?"* perguntou **Gorath**.
+
+— *"Boa ideia. Mas pela manhã... tenho um padre para procurar."*
+
+### Sr. Bigodes - Investigando o Padre Joseph
+Logo cedo, **Sr. Bigodes** foi até a igreja, esperando encontrar o misterioso padre **Joseph**.
+
+Porém, ao chegar, apenas alguns coroinhas estavam no salão, limpando e organizando os bancos para a missa da noite.
+
+Um dos garotos, segurando uma vassoura, sorriu ao ver o felino.
+
+— *"Oi, senhor gato! O senhor gostaria de vir para a missa hoje à noite?"*
+
+**Sr. Bigodes** piscou.
+
+— *"Ah, sim, claro..." Ele coçou o queixo. "Mas o padre Joseph está por aqui?"*
+
+O jovem coroinha negou com a cabeça.
+
+— *"Ele apareceu mais cedo, mas disse que tinha coisas a fazer. Voltará para a última missa antes do festival."*
+
+**Sr. Bigodes** assentiu.
+
+Mas sentiu um cheiro estranho no ar.
+
+Algo ferroso... mascarado pelo incenso.
+
+Ele optou por não fazer perguntas agora e voltou para a pousada para descansar um pouco.
+
+### Tarde - Encontro com Tif e Mistérios de Franca
+**Gorath** e **Sr. Bigodes** se encontraram no centro comercial da cidade para investigar.
+
+Foi quando viram **Tif**.
+
+— *"O que você está fazendo por aqui, **Tif**?"* perguntou **Sr. Bigodes**.
+
+— *"Montando meu estoque para vender no festival. Achei estranho você não estar vendendo seu incrível pão sem glúten."*
+
+Sr. Bigodes coçou a cabeça.
+
+— *"Estou vendo com um amigo para fazermos choripan... Ele tem um bar, acho que você já o conheceu."*
+
+Antes que **Tif** pudesse responder, **Gorath** apareceu, segurando algo.
+
+— *"**Tif**! Que bom que encontrei você."*
+
+Ele retirou de sua bolsa mágica o estranho mecanismo que haviam encontrado escondido no navio de **Tipsy**.
+
+— *"Pode ver o que é isso?"*
+
+**Tif** pegou o objeto e imediatamente reconheceu os materiais.
+
+— *"Isso vem de Franca..."*
+
+Ele analisou o estado danificado do dispositivo.
+
+— *"Foi alvo de um grande ataque mágico... Eu acho que já sei quem causou isso."*
+
+Ele olhou para **Gorath** e **Sr. Bigodes**.
+
+Os dois trocaram olhares e responderam juntos, em tom baixo:
+
+— *"Drax..."*
+
+**Tif** riu e balançou a cabeça, antes de seguir seu caminho para terminar sua vendinha.
+
+### Noite - A Missa e a Perseguição ao Padre
+A missa estava cheia.
+
+Ouvia-se o cântico dos fiéis, enquanto o padre Joseph terminava sua oração:
+
+— *"Louvado seja Demodras, o grande guardião de Mediogalti! Que suas asas protejam nossa ilha, que sua fúria devore os inimigos, e que sua chama garanta colheitas prósperas e abundantes!"*
+
+A cerimônia chegou ao fim, e **Sr. Bigodes** e **Gorath** decidiram por seguir o padre **Joseph** discretamente.
+
+Eles o viram entrar no salão cerimonial, onde ele cumprimentou os guardas e **Drax**, antes de subir para seus aposentos.
+
+**Gorath** franziu o cenho.
+
+— *"Estranho. Eu conseguia sentir sua presença a distância... mas agora, sumiu."*
+
+**Sr. Bigodes** arqueou uma sobrancelha felina.
+
+— *"Então ele não está mais no quarto?"*
+
+Gorath negou.
+
+Eles decidiram tentar escalar a lateral do salão para investigar, mas guardas em torres de vigia os obrigaram a recuar.
+
+Sem alternativas, retornaram para a pousada, decidindo que tentariam novamente no dia seguinte.
+
+
+
+
 
