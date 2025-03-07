@@ -1038,22 +1038,23 @@ Mas era tarde demais.
 
 Chacoalhou.
 
-O tempo congelou.
+O som ressoou pelo salão, carregado de magia arcana.
 
-Os metamorfos ficaram presos no instante do ataque, seus corpos parados no ar.
+Os metamorfos vacilaram, como se um torpor os tivesse atingido.
 
-**Nicol Bolas** caminhou lentamente entre eles, analisando suas posições.
+Suas mãos tremejaram, seus olhos perderam o foco por um breve momento.
 
-Ele se colocou atrás do falso mensageiro e ergueu sua espada.
+Seus golpes, antes precisos, erraram completamente.
 
-O tempo voltou a correr.
+Nicol aproveitou a brecha.
 
-E o metamorfo nem percebeu o que aconteceu.
+Desviou para o lado, girando rapidamente.
 
-A lâmina atravessou seu peito.
+O falso mensageiro sentiu o aço perfurá-lo antes mesmo de entender o que aconteceu.
+
+A lâmina atravessou seu peito com um brilho cortante.
 
 Ele tremeu, seus olhos arregalados, enquanto sua forma grotesca retornava ao estado original. Seu corpo virou uma gosma esverdeada, dissolvendo-se rapidamente no chão.
-
 O falso **Gorath** rosnou e recuou, percebendo que estava sozinho.
 
 — *"Se fosse o verdadeiro **Gorath**, essa luta teria sido interessante."* **Nicol Bolas** girou sua espada nos dedos.
