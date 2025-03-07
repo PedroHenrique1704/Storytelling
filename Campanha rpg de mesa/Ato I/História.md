@@ -180,7 +180,7 @@ Antes que pudessem reagir, passos ecoaram atrás deles. **Raz** surgiu no túnel
 
 Mas antes que pudessem responder, algo se moveu rápido demais para ser evitado. Uma sombra saltou do teto da caverna — outro **Raz!** O falso lagarto desceu com as garras expostas, atingindo **Papabundus** pelas costas e o lançando contra o chão. Com um brilho esverdeado e uma aura mágica pulsante, a criatura assumiu sua verdadeira forma: um dos dragões verdes estava disfarçado o tempo todo. Agora, lado a lado com seu irmão, ele exibia um sorriso predatório.
 
-### O Combate com os Dragões Jovens
+## O Combate com os Dragões Jovens
 Os dragões pareciam tratar a luta como um jogo cruel, avançando como crianças brincando com a comida. Suas presas buscavam qualquer alvo que estivesse em seu alcance, e suas garras arranhavam o chão enquanto corriam em direção ao grupo.
 
 **Papabundus** e **Raz**, envoltos por suas cascatas arcanas, reagiram rapidamente. Usando de suas forças, eles seguraram os dragões, contudo a investida das criaturas era incessante. Os jovens dragões avançavam novamente, como se nunca se cansassem. 
