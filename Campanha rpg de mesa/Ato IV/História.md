@@ -841,7 +841,246 @@ Eles decidiram tentar escalar a lateral do salão para investigar, mas guardas e
 
 Sem alternativas, retornaram para a pousada, decidindo que tentariam novamente no dia seguinte.
 
+## 2 Dias para o Festival
+### Período Matutino
+
+O grupo acordou cedo, reunindo-se no salão da pousada para tomar o café da manhã e compartilhar suas descobertas do dia anterior.
+
+**Drax**, já mordendo um pedaço generoso de pão e carne seca, foi o primeiro a falar:
+
+— *"Então, e aí? Alguma novidade estranha ou o festival vai ser só vinho e fogos?"*
+
+**Sr. Bigodes**, enquanto lambia as patas após terminar seu leite sem lactose, ergueu a sobrancelha e respondeu:
+
+— *"O padre **Joseph**... tem algo de estranho nele. Eu e **Gorath** o seguimos ontem à noite, mas quando chegamos aos aposentos dele... ele simplesmente desapareceu."*
+
+— *"Hmmm..."* **Nicol Bolas** tocou o queixo de madeira. *"Não é só isso. A zona rural está incompleta. Trabalhadores sumindo... ninguém está levando a sério, mas sabemos o que isso pode significar."*
+
+**Gorath** cruzou os braços, pensativo.
+
+— *"Encontrei peças de metal enferrujadas e manchadas de sangue na floresta. Pode ser nada... ou pode ser algo bem pior."*
+
+**Drax** riu, batendo a caneca na mesa.
+
+— *"Bom, então temos desaparecimentos, magia suspeita e metal sujo de sangue no meio do mato. Tá com cara de que esse festival vai ser mais animado do que eu esperava."*
+
+Todos trocaram olhares, um silêncio de compreensão pairando no ar antes que cada um decidisse seguir seu próprio caminho pela manhã.
+
+### Sr. Bigodes - A caverna
+
+Determinado a tirar a limpo os mistérios da caverna, **Sr. Bigodes** seguiu sozinho, movendo-se agilmente pela floresta e pelas passagens conhecidas.
+
+Dessa vez, ele estava atento para não cair novamente no buraco que ele mesmo causara antes. Saltou com elegância, pousando graciosamente do outro lado.
+
+— *"Hah! Veja só... ainda sou ágil como sempre."*
+
+Orgulhoso da própria proeza, ele se virou para admirar sua obra.
+
+Foi o seu erro.
+
+Passos ligeiros.
+Um cheiro podre e forte.
+Uma sombra atrás dele.
+
+Antes que pudesse reagir, tudo ficou escuro.
+
+### Drax - O anão criado em montanhas
+
+**Drax** voltou para o salão cerimonial, e logo percebeu que os oficiais da cidade estavam envolvidos em uma animada competição de queda de braço.
+
+O general, um homem robusto e calejado por anos de combate, o notou e sorriu.
+
+— *"Venha, anão! Teste sua força contra um soldado de verdade!"*
+
+**Drax** riu e sentou-se à mesa, estalando os dedos.
+
+O embate começou, e o general tinha uma força descomunal. As mãos se apertavam, músculos tremiam, e por um momento parecia que **Drax** estava em desvantagem.
+
+Mas então...
+
+Os pés de **Drax** tocaram o chão.
+
+O anão canalizou a força de suas raízes montanhosas, apertou os dentes e, com um rugido bestial, bateu a mão do general na mesa com um estrondo!
+
+— *"PORRA!"* O general riu, massageando o braço. *"Você é forte, anão! Essa eu não esperava!"*
+
+Os soldados gritaram e brindaram, e **Drax** ganhou uma rodada de bebida grátis.
 
 
+### Gorath - As Sombras da Floresta
+**Gorath** optou por caminhar para o leste da cidade, explorando a floresta. Ele apreciava a tranquilidade da natureza, mas algo o incomodava.
 
+Peças de metal enferrujadas e manchadas de sangue estavam espalhadas pelo solo.
+
+Ele se ajoelhou, pegou uma peça retorcida e passou os dedos sobre a superfície fria.
+
+— *"Isso não é bom..."*
+
+O padrão das marcas o fez lembrar de suas antigas batalhas. Autômatos destruídos. Sangue seco misturado ao óleo.
+
+Se alguém os atacou, quem foi?
+
+Ele suspirou e guardou um pedaço da sucata consigo antes de retornar.
+
+### Nicol Bolas - O Fazendeiro Relutante
+Enquanto caminhava novamente pela parte rural, **Nicol Bolas** sentiu olhares familiares o acompanhando.
+
+— *"Senhor boneco, bom ver você por aqui novamente."*
+
+Era um dos fazendeiros idosos, que cuidava do gado.
+
+— *"O pessoal mais novo veio trabalhar?" **Nicol Bolas** perguntou.
+
+O velho balançou a cabeça e resmungou.
+
+— *"Infelizmente não... devem estar farreando até o festival."*
+
+**Nicol Bolas** ficou em silêncio, mas algo dentro dele dizia que não era apenas preguiça dos trabalhadores.
+
+Algo estava errado.
+
+Ele deixou a fazenda, caminhando pelo campo aberto, sentindo o vento bater contra seu corpo de madeira, enquanto vagas memórias de um tempo distante tentavam surgir em sua mente... mas não conseguiam.
+
+### Período Vespertino - O Jogo das Máscaras
+**Gorath** e **Nicol Bolas** se encontraram no centro comercial, caminhando juntos pelas barracas e lojas.
+
+Enquanto **Gorath** analisava um mercado de armas, **Nicol Bolas** avistou **Raz**, carregando caixas e supervisionando a montagem do festival.
+
+— *"Raz! Faz tempo, aconteceu algo?"*
+
+O cozinheiro riu.
+
+— *"Aconteceu bastante coisa, mas nada tão empolgante quanto Franca."*
+
+— *"E **Sr. Bigodes**?"* Perguntou **Raz** enquanto apontava com a cabeça para um dos bares, então continou:
+
+— *"Iremos vender choripan e pina colada no festival."*
+
+Enquanto isso, **Gorath** percebeu algo suspeito.
+
+Um mensageiro do reino estava correndo apressado... e havia alguém o seguindo.
+
+— *"**Nicol Bolas**, preciso de ajuda."*
+
+Antes que **Nicol Bolas** pudesse responder, **Gorath** disparou em velocidade absurda.
+
+Ele saltou sobre as barracas, deslizou por telhados e usou teletransportes para encurtar a distância.
+
+O espião percebeu que fora descoberto e tentou correr.
+
+Contudo o mensageiro tropeçou e caiu em uma viela escura.
+
+O espião se virou, mas foi atingido por um soco avassalador de **Gorath**.
+
+Ou pelo menos, era isso que **Nicol Bolas** pensava.
+
+Quando ele finalmente alcançou a viela, **Gorath** já estava ao lado do mensageiro, ajudando-o a levantar.
+
+— *"O que aconteceu aqui?"* **Nicol Bolas** perguntou, ainda ofegante.
+
+O monge passou a mão na cabeça, como se estivesse confuso.
+
+— *"Peguei um espião... ou algo assim."* **Gorath** limpou o punho. *"Mas ele desapareceu quando eu o atingi."*
+
+O mensageiro recolheu suas cartas, tremendo um pouco, mas sem dizer nada.
+
+— *"Bom, então vamos escoltar ele até um posto próximo ao palácio."* **Nicol Bolas** disse, ainda desconfiado.
+
+A caminhada foi silenciosa, mas algo incomodava **Nicol Bolas**.
+
+**Gorath** parecia... errado.
+
+Eles chegaram a um salão próximo ao palácio.
+
+Foi então que **Nicol Bolas** sentiu o cheiro.
+
+Podre. Familiar.
+
+O boneco de madeira inclinou a cabeça para o lado, cruzando os braços. Seu olhar frio e penetrante atravessou a alma do mensageiro.
+
+O homem tremeu, suas mãos vacilaram e, quando tentou dar um passo para trás...
+
+Cartas caíram de seu bolso.
+
+Entre elas, uma gosma esverdeada escorreu pelo chão.
+
+— *"Ah... entendi."* **Nicol Bolas** disse calmamente.
+
+O silêncio do salão foi quebrado por um som cortante.
+
+O **"Gorath"** sacou um sabre e atacou.
+
+Mas **Nicol Bolas** já não estava ali.
+
+No instante do golpe, o boneco desapareceu, deixando apenas um rastro de pós-imagem.
+
+O verdadeiro **Nicol Bolas** já estava atrás do impostor.
+
+— *"Um Vanara... com um sabre?"* **Nicol Bolas** zombou, enquanto empunhava sua lâmina. *"Péssima imitação."*
+
+O metamorfo que fingia ser **Gorath** rosnou e atacou outra vez, mas **Nicol Bolas** bloqueou o golpe com uma facilidade quase insultante.
+
+Ao mesmo tempo, o mensageiro falso saltou para trás, sacando uma adaga embebida em veneno negro.
+
+— *"Dois contra um? Hmmm... acho justo."* **Nicol Bolas** sorriu.
+
+Os metamorfos avançaram ao mesmo tempo, tentando cercá-lo.
+
+O primeiro golpe veio de **"Gorath"**, um ataque lateral preciso, mirando o pescoço de **Nicol Bolas**.
+
+O boneco se abaixou no último segundo, girando a lâmina para aparar o sabre e, com um movimento ágil, deslizou para trás.
+
+O segundo golpe veio do falso mensageiro, que tentou apunhalar seu flanco.
+
+Mas era tarde demais.
+
+**Nicol Bolas** puxou um pequeno sino de seu cinto.
+
+Chacoalhou.
+
+O tempo congelou.
+
+Os metamorfos ficaram presos no instante do ataque, seus corpos parados no ar.
+
+**Nicol Bolas** caminhou lentamente entre eles, analisando suas posições.
+
+Ele se colocou atrás do falso mensageiro e ergueu sua espada.
+
+O tempo voltou a correr.
+
+E o metamorfo nem percebeu o que aconteceu.
+
+A lâmina atravessou seu peito.
+
+Ele tremeu, seus olhos arregalados, enquanto sua forma grotesca retornava ao estado original. Seu corpo virou uma gosma esverdeada, dissolvendo-se rapidamente no chão.
+
+O falso **Gorath** rosnou e recuou, percebendo que estava sozinho.
+
+— *"Se fosse o verdadeiro **Gorath**, essa luta teria sido interessante."* **Nicol Bolas** girou sua espada nos dedos.
+
+O metamorfo tentou fugir.
+
+Mas **Nicol Bolas** já estava na sua frente.
+
+— *"Sem truques dessa vez."*
+
+O golpe foi rápido e limpo, cortando o pescoço da criatura em um arco perfeito.
+
+Seu corpo também se desfez em gosma, evaporando no ar.
+
+Um silêncio absoluto tomou conta do salão.
+
+**Nicol Bolas** limpou a lâmina e a guardou.
+
+O cheiro podre ainda pairava no ar.
+
+Ele olhou ao redor, sem encontrar **Gorath**.
+
+— *"Merda."*
+
+Apercebendo-se do que realmente havia acontecido, o boneco cerrou os punhos.
+
+— *"Talvez fosse isso que **Gorath** e **Sr. Bigodes** tenham sentido antes... preciso avisá-los."
+
+Sem perder tempo, ele se virou e saiu em direção ao salão cerimonial.
 
