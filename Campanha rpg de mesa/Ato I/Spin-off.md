@@ -1,74 +1,105 @@
 # Spin-Off: O Sacrifício do Futuro
 ## Cauda do Dragão, Um Futuro de Lembranças
-A noite caía em **Merab**, e o Bar **Cauda do Dragão**, antes um refúgio de aventuras e sonhos, se tornou um lugar de melancolia. **Sr. Bigodes**, **Papabundus IX**, 
-**Kristoff**, e **Nicol Bolas** estavam sentados em uma mesa, suas figuras marcadas pelo tempo. 
-Rugas adornavam seus rostos, e os olhares eram pesados com lembranças que insistiam em voltar.
+A noite caía sobre **Merab**, e o bar **Cauda do Dragão** estava mais silencioso do que de costume. Lá dentro, a luz das tochas dançava nas paredes, refletindo em copos meio vazios e rostos marcados pelo tempo.
 
-Na cadeira de repouso próxima à lareira estava **Raz**, imóvel, mas com olhos que seguiam quem falasse. **Liz**, agora responsável pelo bar, servia os clientes e cuidava de **Raz**,
-seu irmão, como podia. Mas todos sabiam que ele nunca mais seria o mesmo.
+**Sr. Bigodes**, **Papabundus IX**, **Kristoff**, e **Nicol Bolas** estavam sentados em uma mesa de madeira gasta, suas expressões carregadas de um peso que nem o álcool conseguia aliviar.
 
-Há 15 anos, no Festival de **Mediogalti**, a tragédia os atingira. Um dragão imenso surgiu do nada, e o grupo, mesmo unindo suas forças, não conseguiu detê-lo. Naquele dia, **Raz** 
-sacrificou-se para proteger seus amigos e centenas de pessoas no festival. Seu corpo sobreviveu, mas sua consciência se perdeu para sempre.
+A cadeira ao lado da lareira carregava um dos maiores lembretes de sua falha. **Raz** estava ali, imóvel, seus olhos vagavam lentamente pelo ambiente, mas sem brilho, sem foco. Apenas o instinto básico parecia movê-lo.
 
-Após o festival, o grupo se dissolveu. A visão de **Raz**, preso em um estado vegetativo, era um lembrete constante do custo de suas aventuras. **Galadriel**, 
-consumido pela culpa e temendo o que sua maldição poderia causar, desapareceu sem deixar rastros, deixando apenas incertezas para trás.
+**Liz**, agora responsável pelo bar, circulava pelo salão, observando seus clientes e, ocasionalmente, ajeitando a manta de **Raz** — *Vocês estão quietos hoje.* — Disse **Liz** na tentativa de quebrar o clima pesado enquanto se aproximava da mesa.
 
-Os quatro amigos restantes desistiram da vida de aventureiros, cada um buscando maneiras de lidar com a dor. Agora, eles se reuniam no bar, 
-não para planejar novos feitos, mas para relembrar um passado que os assombrava.
+**Kristoff** mexeu no copo, encarando o líquido âmbar antes de responder — *Não é todo dia que se conversa com um herói* — Seu olhar caiu sobre *Raz*, a sombra do sorriso que tentou forçar não passou despercebida.
 
-**Liz** aproximou-se da mesa, trazendo as bebidas de sempre.
-*"Vocês estão quietos hoje"*, disse ela, tentando aliviar o clima.
-*"Não é todo dia que se conversa com um herói"*, respondeu **Kristoff**, olhando para **Raz**. Ele tentava sorrir, mas o peso em sua voz era evidente.
+**Sr. Bigodes** sussurou, — *Se ao menos houvesse uma maneira de... voltar atrás. De não termos perdido... tudo* — enquanto brincava com um farelo de pão sem glúten sobre a mesa.
 
-**Sr. Bigodes** brincava com seu copo, seu entusiasmo de outros tempos parecia apagado. *"Se ao menos houvesse uma maneira de... voltar atrás. De não termos perdido... tudo."*
+Mas o passado era imutável. Assim como o peso da culpa.
 
-A conversa foi interrompida por passos apressados na rua. O som ficava cada vez mais alto, e **Papabundus**, curioso como sempre, foi até a porta para investigar.
-O caos tomava conta de **Merab**. Pessoas fugiam em pânico, e o som de algo pesado e sobrenatural ecoava pelas ruas.
+O silêncio que se seguiu foi interrompido por passos apressados na rua. Então, Papabundus, sempre curioso, levantou-se e foi até a porta para espiar.
 
-*"O que está acontecendo lá fora?"* perguntou **Sr. Bigodes**, já se levantando.
-*"Mortos-vivos. Muitos deles"*, respondeu **Papabundus**, seu tom mudando para um alerta grave.
+*Merda* — Sussurou **Papabundus IX**, que em seguida exclamou — "Mortos-vivos" — Enquanto olhava para dentro do bar 
 
-**Sr. Bigodes** virou-se para **Liz**:
-*"Tranque o bar. Proteja **Raz**. Não deixe ninguém entrar."*
+O barulho de gritos ecoou pela rua, acompanhado de um estrondo. **Merab** estava mergulhada no caos.
 
-**Liz** assentiu rapidamente, e enquanto ela e **Kristoff** fechavam portas e janelas, **Papabundus** e **Nicol Bolas** saíram para enfrentar
-o que quer que estivesse causando o caos.
+A mesa inteira se ergueu quase ao mesmo tempo.
+
+**Sr. Bigodes** olhou para **Liz** e disse em um tom sério — *Tranque o bar. Proteja Raz. Não deixe ninguém entrar* — Parecendo uma ordem.
+
+E então, os quatro saíram para enfrentar o que quer que estivesse vindo.
+
 
 ## O Tricerátops Esquelético
-No meio da rua, um tricerátops esquelético carregado de energia necromântica avançou em direção a **Papabundus**. 
-Meio embriagado, ele sorriu e ativou sua cascata arcana, fortalecendo seu corpo com magia.
+A rua estava tomada pelo caos. Civis corriam desesperados, e entre os destroços de carroças e barracas derrubadas, algo gigantesco avançava.
 
-*"Vamos dançar, grandão"*, disse **Papabundus**, segurando o Tricerátops com força descomunal. Ele o ergueu com facilidade surpreendente e o arremessou contra uma parede.
+Um tricerátops esquelético, seus ossos entrelaçados com veios de magia necromântica verdejante, marchava pelo caminho de paralelepípedos, suas presas feitas de puro osso brilhando com energia sombria.
 
-*"Desculpe!"* gritou **Papabundus** para o dono da casa destruída.
+*Ah, que coisa linda* — **Papabundus** comentou, meio embriagado, enquanto ativava sua cascata arcana, envolvendo seu corpo com uma aura cintilante de poder.
 
-O esqueleto perdeu a magia que o sustentava, desmoronando em uma pilha de ossos. **Nicol Bolas** pegou um dos ossos e percebeu imediatamente:
-*"Magia negra. Necromancia. Das piores que já vi."*
+O tricerátops investiu contra ele, chifres mirando direto no peito do mago.
 
-### O Combate com os Mortos-Vivos
-De repente, o chão começou a tremer. Diversos esqueletos emergiram, cercando os quatro aventureiros. Mesmo sendo fracos individualmente, eram numerosos e implacáveis.
+Mas Papabundus sorriu.
 
-* **Papabundus** conjurava magias em sua espada, golpeando com precisão e desferindo ondas de energia que devastavam os inimigos em massa.
-Com pequenos teletransportes, ele esquivava dos ataques e reaparecia em posições estratégicas para causar estragos.
+No último segundo, ele se esquivou e agarrou o monstro com as próprias mãos, forçando-o a parar com um impacto brutal. O chão abaixo dele rachou com a força do embate.
 
-* **Nicol Bolas** movia-se com graça, aparando ataques com sua espada e retaliando com cortes precisos. Sua varinha alternava entre chamas
-intensas que consumiam os mortos-vivos e rajadas de gelo que os despedaçavam.
+*Agora... VAMOS BRINCAR!* — **Papabundus** levantou o tricerátops como se fosse feito de madeira e o girou no ar antes de arremessá-lo com força contra uma parede de pedra.
 
-* **Kristoff**, com chamas negras dançando em suas mãos, lançava magias de impacto que explodiam em ondas devastadoras, derrubando fileiras de esqueletos.
-Sua pistola, carregada com um único tiro explosivo, eliminou um grupo inteiro em um único disparo.
+O esqueleto explodiu em fragmentos, a magia necromântica piscando uma última vez antes de se dissipar.
 
-**Sr. Bigodes**, ágil como sempre, atirava flechas certeiras enquanto se esquivava pelos becos e fazia comentários melancólicos.
-*"Pão sem glúten não vai te salvar dessa, mas quem sabe ajude na próxima vida..."*
+**Papabundus** então gritou para o daono da casa destruida — *Desculpe!* — enquanto esfregava suas mãos uma contra a outra.
 
-Quando a luta finalmente terminou, **Sr. Bigodes** subiu ao telhado de uma casa para analisar a situação. **Kristoff**, com um teletransporte, juntou-se a ele. 
-Lá de cima, viram algo aterrorizante: um coliseu antigo, repleto de colunas laterais, emanava uma aura sombria.
+**Nicol Bolas**, mais analítico, pegou um dos ossos e o girou nos dedos — *Isso não é necromancia comum. Isso é... algo bem pior* — enquanto franzia sua sobrancelha de madeira.
 
-## O Ritual e a Batalha
-No centro do coliseu, um ritual macabro estava em andamento. Uma figura encapuzada, segurando uma foice envolta em magia negra, estava rodeada por três criaturas invocadas:
+E então, o chão tremeu novamente.
 
-* Um **dragão vermelho ancião**, suas escamas brilhando como brasas.
-* Uma **banshee**, com gritos que poderiam despedaçar a mente.
-* Uma **fênix**, ardendo em chamas intensas.
+## O Combate com os Mortos-Vivos
+O eco da batalha despertou algo adormecido sob as ruas de **Merab**.
+
+De cada sombra, das rachaduras do solo, dos cantos escuros, esqueletos e cadáveres em farrapos começaram a se erguer.
+
+Eles vinham de todos os lados.
+
+**Kristoff** murmurou — *Hora de se aquecer* — enquanto suas mãos eram envolvidas por chamas negras.
+
+**Papabundus** conjurava ondas de energia mágica em sua espada, cada golpe cortando e explodindo os mortos-vivos em chamas místicas.
+
+esaparecendo e reaparecendo em flashes de luz, teletransportando-se entre os inimigos, sempre golpeando de surpresa antes de sumir novamente.
+
+**Nicol Bolas** movia-se com precisão letal. Com uma única mão, aparava golpes de espadas enferrujadas e garras podres, enquanto a outra disparava rajadas de fogo e gelo com sua varinha.
+
+Ele deslizou entre os inimigos, congelando um no lugar antes de partir outro ao meio com um golpe limpo de sua lâmina.
+
+**Kristoff** Com um único movimento ergueu uma parede de chamas negras, forçando os esqueletos a se dispersarem.
+
+Murmurou — *Não sou fã de multidões* — antes de disparar um tiro da sua pistola mágica. A bala explodiu no impacto, mandando ossos e carne podre voando para todos os lados.
+
+**Sr. Bigodes** era um borrão entre os becos e ruínas, atirando flechas em alvos precisos sem nunca parar de se mover.
+
+Ele saltava de telhados caídos, girava no ar e disparava enquanto deslizava por cordas ou corria pelos muros.
+
+*Pão sem glúten não vai te salvar dessa, mas quem sabe ajude na próxima vida...* — enquanto disparava uma flecha, atravessando o crânio de um zumbi.
+
+Então, tudo ficou em silêncio.
+
+
+## O Coliseu e o Ritual
+Do alto de um telhado, **Sr. Bigodes** e **Kristoff** avistaram algo maior.
+
+Um coliseu antigo, de colunas rachadas e escuridão pulsante.
+
+Dentro, um ritual macabro estava em andamento.
+
+No centro, uma figura encapuzada, segurando uma foice negra que sugava a luz ao redor.
+
+Três monstros estavam ao seu lado.
+
+* Um **dragão vermelho**, suas escamas ardendo como brasas.
+* Uma **banshee**, seus olhos vazios e seu grito preparando-se para dilacerar a sanidade.
+* Uma **fênix**, suas chamas sagradas distorcidas por energia profana.
+
+Eles estavam prontos.
+
+*É agora ou nunca* — **Nicol Bolas** murmurou.
+
+E assim, os quatro correram em direção ao coliseu... para encarar um destino que parecia inevitável.
   
 ### A Luta Contra os Invocados
 * **Papabundus** enfrentou o **dragão vermelho ancião**, teleportando-se ao redor dele e desferindo golpes devastadores com sua espada imbuída de energia mágica. 
@@ -86,44 +117,46 @@ O **dragão vermelho**, em um último ato de desespero, voou para os céus com *
 e uma explosão mágica de **Kristoff** atingiram o **dragão**, derrubando-o. **Papabundus** caiu junto com ele e, em um golpe final, dividiu o dragão em dois com sua espada.
 
 ## O Confronto com a Figura Encapuzada
-Assim que o **dragão vermelho caiu**, a figura encapuzada desceu de seu pedestal, segurando sua foice negra,
+Assim que o **dragão vermelho** caiu, a figura encapuzada desceu de seu pedestal, segurando sua foice negra,
 que emanava uma aura opressiva. Cada passo parecia consumir a luz ao seu redor, e quando ergueu a arma, um trovão mágico ecoou pelo coliseu.
 
-*"Chegaram longe, mas não passarão de meros peões",* disse a figura com uma voz grave e deturpada.
+*Chegaram longe, mas não passarão de meros peões* — disse a figura com uma voz grave e deturpada.
 
 ### Primeira Investida: A Força Sombria da Foice
-**Nicol Bolas** avançou para interceptar os golpes devastadores da figura, sua espada dançava em defesa, 
-mas cada golpe da foice vinha acompanhado de uma explosão de energia sombria, empurrando-o para trás.
+**Nicol Bolas** avançou para interceptar os golpes devastadores da figura, sua espada dançava em defesa, mas cada golpe da foice vinha acompanhado de uma explosão de energia sombria, empurrando-o para trás.
 
 A figura girou sua arma com maestria, atingindo **Papabundus**, que aparou o golpe com sua espada. Porém, o impacto mágico o jogou longe, fazendo-o deslizar pelo chão.
 Enquanto **Kristoff** conjurava chamas negras para atacar, a figura apontou sua foice para o ar, invocando uma chuva de fragmentos sombrios que obrigou todos a se dispersarem.
 
-### Segunda Camada: Os Mortos-Vivos
+
+
+### Segunda Investida: Os Mortos-Vivos
 A figura então cravou sua foice no chão, liberando uma onda de magia negra. Esqueletos começaram a emergir das pedras do coliseu, 
 suas armaduras em frangalhos e armas improvisadas brilhando com energia maldita.
 
 **Sr. Bigodes**, sempre rápido, começou a disparar flechas precisas que derrubavam os esqueletos antes que pudessem se aproximar.
-*"Vocês não estão prontos para um pão sem glúten, muito menos para mim!"*, disse **Sr. Bigodes** após derrubar quase todos os esqueletos.
+*Vocês não estão prontos para um pão sem glúten, muito menos para mim!* — disse **Sr. Bigodes** após derrubar quase todos os esqueletos.
 
 Enquanto o grupo lidava com os esqueletos, a figura avançou novamente.
 
 **Papabundus**, recuperado, teleportou-se para perto, golpeando com sua espada energizada. O impacto destruiu a armadura da figura em um ponto,
 mas, em retaliação, ela lançou uma rajada de energia negra que o atingiu diretamente, queimando parte de suas roupas e pele.
 
-### Terceira Camada: Magias Imbuídas
+### Terceira Investida: Magias Imbuídas
 A figura começou a imbuir magia sombria em sua foice, girando-a em arcos largos e liberando ondas cortantes de energia que dividiram
 o chão e forçaram o grupo a se reposicionar constantemente.
 
 **Kristoff** usou sua pistola carregada com um único tiro explosivo, disparando diretamente na figura.
 A explosão destruiu parte do capuz e revelou parcialmente o rosto do inimigo.
-*"Um truque impressionante, mas ainda não o suficiente"*, zombou a figura, que conjurou correntes de sombra para imobilizá-lo.
+
+zombou a figura — *Um truque impressionante, mas ainda não o suficiente* — conjuramdo correntes de sombra para imobilizá-lo.
 **Nicol Bolas** viu **Kristoff** preso e avançou contra a figura, ele então desferiu uma sequência de ataques, cada golpe quebrando as correntes e forçando o inimigo a recuar.
 
-*"Então vocês sabem lutar, afinal."* murmurou a figura, antes de girar sua foice para criar uma cúpula de energia negra ao redor de si.
+murmurou a figura — *Então vocês sabem lutar, afinal.*  — girando sua foice para criar uma cúpula de energia negra ao redor de si.
 
-### Quarta Camada: O Esforço Final
+### Quarta Investida: O Esforço Final
 **Nicol Bolas** percebeu que o inimigo estava conjurando algo devastador dentro da cúpula.
-*"Não temos tempo para brincadeiras!"* gritou ele, lançando rajadas alternadas de fogo e gelo contra a barreira.
+— *Não temos tempo para brincadeiras!* — gritou ele, lançando rajadas alternadas de fogo e gelo contra a barreira.
 
 A barreira começou a rachar. **Papabundus**, com sua espada envolta em energia arcana, avançou com tudo, desferindo um golpe devastador que rompeu a cúpula.
 
@@ -137,15 +170,12 @@ ele desferiu um golpe que quebrou a máscara da figura.
 
 O grupo congelou ao ver o rosto revelado: era **Galadriel**, deformado pela maldição. Seus olhos estavam cheios de lágrimas, mas sua expressão era de culpa profunda.
 
-Ele recuou, a voz pesada e cheia de pesar:
-*"Eu ainda sou fraco demais para proteger quem amo. Cada passo que dou, a maldição me consome. Se continuar assim, só causarei mais dor... Se tiver que escolher, 
-prefiro sacrificar a mim mesmo antes de machucar mais inocentes. Mas ainda não posso desistir... ainda não."*
+**Galadriel** recuando proferiu — *Eu ainda sou fraco demais para proteger quem amo. Cada passo que dou, a maldição me consome. Se continuar assim, só causarei mais dor... Se tiver que escolher, prefiro sacrificar a mim mesmo antes de machucar mais inocentes. Mas ainda não posso desistir... ainda não.* — Com sua voz rouca, e cheia de pesar.
 
 **Galadriel** desapareceu nas sombras, deixando o grupo em silêncio.
 
 ## O Aviso do Futuro
-Enquanto ainda processavam a revelação, uma voz feminina ecoou pelo coliseu:
-*"Evitem esse futuro. Não percam novamente."*
+Enquanto ainda processavam a revelação, uma voz feminina ecoou pelo coliseu — *Evitem esse futuro. Não percam novamente*.
 
 A visão de todos escureceu, e eles despertaram de volta no dirigível a caminho de **Franca**, percebendo que compartilharam o mesmo sonho.
 
