@@ -40,7 +40,6 @@ Antes que pudessem continuar observando, uma empregada da mansão apareceu de re
 
 *Você está bem?* — perguntou **Raz** — *Mais ou menos..., mas o que foi isso?* — resmungou **Nicol Bolas**.
 
-
 Na manhã seguinte, o mistério foi desvendado. Sentado à mesa do café da manhã, **Papabundus** parecia relaxado, como se nada houvesse acontecido na noite anterior. Mas a inquietação de seus companheiros era palpável.
 
 Finalmente, **Papabundus** suspirou, percebendo que não podia mais esconder a verdade. — *Vocês viram, não é? Aqui está a explicação.*
@@ -63,7 +62,7 @@ Um dos automatos leva a carta ao rei que responde — *Que bela carta... Pena qu
 
 As palavras de **Sr. Bigodes**, tentando o comprar com pão sem glúten, acabaram enervando o possível impostor.
 
-## O Impostor
+### O Impostor
 O salão subterrâneo estava saturado com uma atmosfera pesada e úmida. O **rei impostor**, que até então se disfarçava, revelou sua verdadeira forma: um demônio viscoso, uma massa amorfa de lodo pulsante com olhos e bocas emergindo e desaparecendo de sua superfície em um ciclo grotesco. Ao seu lado, dois autômatos gigantes avançaram, protegendo seu mestre com força bruta.
 
 — *Vocês ousam me desafiar?* — gargalhou o demônio, sua voz ecoando em um tom viscoso e abafado.
@@ -100,7 +99,7 @@ O núcleo começou a rachar, e o demônio soltou um grito agonizante. **Sr. Bigo
 
 A flecha acertou em cheio o núcleo danificado, provocando uma explosão. O demônio desintegrou-se, espalhando ácido por todo o salão. O grupo recuou, evitando os respingos corrosivos enquanto a criatura desaparecia em uma nuvem de fumaça.
 
-## Após a Vitória
+### Após a Vitória
 Quando a poeira baixou, o grupo permaneceu exausto e ferido. Guardas reais chegaram logo em seguida, surpresos com o que encontraram.
 
 Um dos guardas perguntou — *O que aconteceu aqui?!* — claramente atônito.
@@ -116,15 +115,334 @@ Na sala real, uma área anti-magia selava o poder de todos. O **rei** estava em 
 
 A **princesa** suplicou ao grupo que encontrasse o antigo mago real, um homem capaz de criar áreas anti-magia e possivelmente a chave para salvar o reino. No entanto, **Raz** e **Nicol Bolas**, em uma tentativa impetuosa de obter informações, chamaram atenção ao escalar o castelo e causar um incidente com os dirigíveis. **Sr. Bigodes** precisou usar toda sua lábia para acalmar os ânimos e evitar represálias.
 
-## A festa e o Labirinto
-Na mansão, **Papabundus** informou que um nobre daria uma festa no dia seguinte, e que o mesmo tinha conexão com o mago. O grupo infiltrou-se, jogando, conversando, e até servindo como garçons para obter informações. Por fim, descobriram um labirinto nos fundos da propriedade.
+## A Festa
 
 * **Kristoff** não é mais visto desde o dia da festa, funcionários dizem ter avistado **Kristoff** saindo da mansão pela noite, com um andar turvo, porém quando foram averiguar **Kristoff** havia desaparecido, deixando para trás somente brasas sobre a grama.
 
-O labirinto de espinhos estava repleto de perigos, como mímicos e armadilhas. Após passarem as armadilhas, encontram uma passagem secreta na latrina de um duende (para desgosto de todos), chegaram à caverna do mago.
+O grupo recebeu a informação de **Papabundus IX** sobre um nobre que daria uma festa na noite seguinte, alguém que possuía conexões com o misterioso mago que estavam investigando. Por conta de sua reputação e da atenção que poderia atrair, **Papabundus** optou por não ir, mas garantiu que seus companheiros fossem bem recebidos como seus "convidados de honra".
 
-## A Emboscada das Sombras
-Quando finalmente alcançaram a parte final do labirinto, uma pequena clareira aberta apareceu diante deles. Ao longe, uma luz tremulava, revelando o contorno de uma casa de madeira simples. O grupo se aproximava com cautela quando **Galadriel** sentiu algo estranho: uma sensação fria e sufocante nas costas, como se estivesse sendo observado.
+Para não chamarem atenção, o grupo se preparou adequadamente. **Raz**, com sua experiência em bares e bebidas, aprimorou um vinho local com ervas exóticas para deixá-lo com um aroma único. Uma garrafa desse vinho foi oferecida como presente, servindo como desculpa para entrarem com uma boa impressão.
+
+Antes de adentrarem a festa, **Galadriel** e **Sr. Bigodes** decidiram dar uma volta no salão. A mansão era impressionante: um prédio de dois andares, vasto e iluminado, capaz de comportar mais de cem pessoas sem parecer lotado. Nada suspeito foi encontrado, e os dois decidiram se juntar ao restante do grupo para entrarem.
+
+Assim que passaram pelas portas douradas, o ar se encheu de risadas, conversas animadas e o tilintar de taças de cristal.
+
+### A Investigação e o Desvio do Plano
+
+Já dentro da festa, **Raz** entregou o vinho ao mordomo, garantindo que era uma cortesia da cidade de **Merab**, do continente ao sul. Ele não perdeu tempo em se juntar aos convidados para experimentar as bebidas finas... e rapidamente ficou embriagado.
+
+Enquanto isso, **Sr. Bigodes** se aproximava dos nobres tentando vender seu famoso pão sem glúten, insistindo que *"Era mais valioso que ouro"* e que *"Curava até desilusões amorosas"*. Seu entusiasmo, no entanto, não contribuiu muito para a investigação.
+
+Restavam **Nicol Bolas** e **Galadriel**, os únicos que ainda estavam focados na missão. Durante conversas estratégicas com alguns convidados, descobriram que o anfitrião da festa era ninguém menos que o neto do mago que procuravam.
+
+— *"Ah, sim... o vovô sumiu. Ele faz isso."* — disse o jovem nobre, com um suspiro entediado, claramente mais preocupado com a fortuna herdada do que com o paradeiro de seu avô.
+
+Após algumas horas, o grupo se reencontrou no centro do salão para compartilhar as informações. **Sr. Bigodes** tentava convencer os outros de que pão sem glúten deveria ser aceito como moeda, enquanto **Raz**, já cambaleando, dizia que nunca tinha bebido algo tão "sofisticado". **Galadriel** e **Nicol Bolas**, por outro lado, discutiam o próximo passo.
+
+Foi então que um velho misterioso, vestido com um manto chique, aproximou-se da mesa. Seu olhar era afiado e sua presença emanava algo estranho, quase como se ele não pertencesse àquele lugar.
+
+— *"Gostariam de jogar cartas? Se ganharem, posso contar o que vieram buscar..."*
+
+**Raz** havia ido ao banheiro nesse momento, então **Galadriel**, **Sr. Bigodes** e **Nicol Bolas** aceitaram o desafio.
+
+### O Jogo de Cartas - Blackjack
+O jogo escolhido foi **Blackjack**.
+
+**Regras do Jogo**: Cada jogador recebe duas cartas e pode pedir mais tentando chegar o mais próximo possível de 21 pontos sem ultrapassar esse número. O velho também recebe cartas e deve jogar conforme regras fixas. O time que vencer três rodadas consecutivas primeiro, ganha.
+
+* **Primeira Rodada**:
+O velho venceu facilmente, seus movimentos eram precisos e estratégicos.
+
+* **Segunda Rodada**:
+Novamente, o velho venceu, esboçando um sorriso discreto enquanto embaralhava as cartas.
+
+* **Terceira Rodada**:
+O grupo começou a virar o jogo, conseguindo a vitória com um 21 perfeito de **Sr. Bigodes**.
+
+* **Quarta Rodada**:
+**Nicol Bolas** utilizou sua memória infalível para prever quais cartas sairiam e conduziu o time à vitória.
+
+* **Quinta Rodada**:
+**Galadriel**, confiando no instinto, jogou de forma arriscada e levou a última rodada, garantindo a vitória do grupo.
+
+— *"Muito bem..."* — disse o velho, recolhendo as cartas. — *"O que desejam saber?"*
+
+Sem hesitar, **Sr. Bigodes** perguntou — *"Onde fica a entrada para o labirinto?"*
+
+O velho sorriu. — *"Ah, compreendo... Fica logo atrás do salão."*
+
+Antes que pudessem agradecer, ele propôs outra rodada. O grupo aceitou, buscando mais respostas.
+
+### A Segunda Rodada de Blackjack
+
+O velho embaralhou as cartas com uma destreza impressionante, os dedos ágeis manipulando o baralho como se cada carta estivesse viva em suas mãos. O grupo trocou olhares—dessa vez, sabiam que ele não era um jogador comum.
+
+**Sr. Bigodes** estalou os dedos e pegou uma uva da mesa, mastigando-a lentamente. — *"Dessa vez, estamos mais preparados."*
+
+**Nicol Bolas** simplesmente ajustou sua postura na cadeira, analisando cada movimento do velho.
+
+**Galadriel**, por sua vez, manteve-se sério, pronto para qualquer truque.
+
+O velho sorriu e distribuiu as cartas.
+
+* 1ª Rodada
+  
+O velho recebeu um 10 de Espadas e um 9 de Copas — totalizando 19.
+
+**Galadriel** e **Sr. Bigodes** ficaram com 18 no máximo.
+
+**Nicol Bolas**, tentando arriscar, puxou uma carta extra—estourou com 23 pontos.
+
+O velho deu um pequeno sorriso — *"Tsc, tsc... O jogo é traiçoeiro, não é?"*
+
+Ele recolheu as fichas do grupo sem pressa, seu olhar analítico captando cada reação.
+
+* 2ª Rodada
+  
+O velho recebeu um 7 de Ouros e um 5 de Paus, totalizando 12.
+
+**Sr. Bigodes** puxou um Valete, e com um Ás, ajustou para 21 exato!
+
+Ele ergueu uma pata, estalando os dedos como se fosse natural — *"Simplesmente um gato de sorte."*
+
+O velho piscou, surpreso pela primeira vez.
+
+* 3ª Rodada
+  
+O velho recebeu um 4 de Copas e um 8 de Ouros, somando 12.
+
+**Galadriel** conseguiu um 9 de Paus e um 8 de Espadas, fechando 17.
+
+O velho pediu uma carta extra… tirou um 10! Estourou com 22.
+
+**Nicol Bolas** cruzou os braços — *"Dessa vez, a sorte virou."*
+
+O velho apenas riu e continuou.
+
+* 4ª Rodada
+  
+O velho conseguiu um Rei de Espadas e um Ás de Ouros — Blackjack instantâneo.
+
+O grupo não teve chance, mesmo com mãos boas.
+
+O velho bateu as cartas na mesa e sorriu — *"A vantagem nunca dura para sempre."* — enquanto seus olhos brilhavam.
+
+* 5ª Rodada
+  
+O velho jogou de maneira mais calculista.
+
+**Sr. Bigodes** e **Galadriel** arriscaram pedir mais cartas, mas ambos estouraram.
+
+**Nicol Bolas**, mesmo com uma mão forte de 20 pontos, foi superado pelo velho, que terminou com 21.
+
+O grupo sentiu a tensão aumentar. O velho ja possuía 2 rodadas consecutivas, a próxima seria crucial.
+
+* 6ª Rodada
+O velho recebeu um 5 de Paus e um 6 de Espadas — totalizando 11.
+
+**Nicol Bolas** recebeu um Valete de Ouros e um Rei de Copas — totalizando 20.
+
+O velho puxou outra carta... um 9 de Copas, totalizando 20 também.
+
+Empate! Mas como dealer, o velho precisava puxar mais uma carta…
+
+Ele puxou um 4 de Espadas, estourando com 24!
+
+**Galadriel** bateu com força na mesa — *"E essa, senhor?"* — comemorando sua vitória.
+
+O velho suspirou e riu, recolhendo as cartas.
+
+* 7ª Rodada 
+
+**Sr. Bigodes** recebeu um 10 de Copas e um Ás, fechando Blackjack!
+
+O velho tinha 19 pontos, mas não foi o suficiente.
+
+O grupo venceu novamente.
+
+* 8ª Rodada
+
+**Raz**, que tinha acabado de voltar do banheiro, viu a última rodada e, já bêbado, puxou uma carta aleatória do baralho. Era um Ás.
+
+— *"Blackjack?? Eu jogava quando criança!"* — ele disse, rindo.
+
+O grupo olhou incrédulo, pois a vitória já estava garantida, mas a cena foi tão absurda que até o velho arregalou os olhos.
+
+Ele então respirou fundoe disse — *"Pois bem... vocês... ganharam pelo visto. Façam uma pergunta."* — enquanto cruzava suas mãos.
+
+Foi quando **Raz**, cambaleando, apontou o dedo e perguntou — *"Onde fica o labirinto do mago?"
+
+O silêncio caiu sobre a mesa.
+
+Os outros membros do grupo o encararam.
+
+— *"Raz... essa foi a mesma pergunta que já fizemos."*
+
+Quando voltaram o olhar para o velho, ele já havia sumido, junto com o baralho.
+
+Ao menos agora tinham um destino certo.
+
+Hora de partir para o labirinto.
+
+
+## O Labirinto do Mago
+Ao encontrarem o labirinto atrás do salão, perceberam que ele era formado por paredes de vinhas retorcidas, pulsantes, como se respirassem levemente no ritmo do vento noturno. O cheiro de vegetação era forte, mas havia algo estranho no ar.
+
+— *"Isso... é seguro?"* — perguntou **Raz**, desconfiado.
+
+Ninguém soube responder de imediato. Antes que pudessem testar, seus olhos foram atraídos para uma cena ao lado: um homem de idade, vestido com roupas refinadas, estava acompanhado por uma elfa de traços delicados, mas de roupas curtas e jeito provocante, claramente uma "dama da noite". O senhor parecia estar se divertindo, embriagado, enquanto a elfa o satisfazia discretamente, sem grande preocupação com os olhares curiosos.
+
+**Raz**, sempre o mais imprevisível do grupo, sorriu travesso e murmurou — *"Acho que temos um voluntário para o teste."*
+
+Antes que alguém pudesse impedi-lo, ele ergueu uma das mãos e invocou uma corrente de vento sutil, mas certeira. O empurrão mágico jogou o velho contra as vinhas do labirinto...
+
+No mesmo instante, o homem arqueou o corpo, gemeu alto e, sem aviso, chegou ao ápice do prazer ali mesmo.
+
+A elfa, que já esperava por algo do tipo, apenas pegou seu pagamento, usou um truque de magia para se limpar e saiu andando com um aceno breve. O velho, por sua vez, simplesmente ajustou a calça, passou a mão nos cabelos e foi embora sem se preocupar.
+
+O grupo observou a cena em silêncio.
+
+Raz voltou até eles, meio desconcertado — *"Bem... parece que não tem problema tocar nas vinhas."*
+
+Nicol Bolas arqueou uma sobrancelha — *"E como exatamente você descobriu isso?"*
+
+"Melhor você não saber" — disse **Raz** desviando o olhar.
+
+### Os Perigos do Labirinto
+O grupo avançou pelo labirinto por quase uma hora. As vinhas pareciam se mover levemente à medida que passavam, mas não atacaram ninguém. O caminho sinuoso e apertado fazia com que constantemente tivessem que refazer rotas, e os sons estranhos de criaturas escondidas ecoavam entre os corredores vegetais.
+
+Foi então que avistaram um baú no meio do caminho.
+
+— *"Olha só, um tesouro!"* — disse **Raz**, animado, já se aproximando.
+
+Galadriel franziu o cenho — *"Raz... espera."*.
+
+— *"É óbvio que isso é um mímico!"* — completou **Nicol Bolas**.
+
+**Sr. Bigodes**, já prevendo o desastre, abriu a boca para alertar — *"NÃO RAZ, ISSO DEVE SER UM MÍMI—"*
+
+Tarde demais.
+
+Assim que **Raz** abriu o baú, ele se revelou um mímico faminto, abocanhando-o da cintura para cima. O monstro tentou engolir Raz como uma cobra devorando uma presa, seus dentes pressionando o peito do mago bêbado.
+
+**Sr. Bigodes**, agindo rápido, agarrou **Raz** pelas pernas e começou a puxá-lo para fora, travando uma espécie de cabo de guerra contra a criatura.
+
+— *"NÃO CONSIGO VER NADA"* — gritava **Raz**, com as pernas balançando no ar.
+
+Depois de um puxão final, **Sr. Bigodes** conseguiu arrancá-lo da boca do mímico. **Raz** caiu de costas, respirando pesadamente... e, ao abrir a mão, percebeu que estava segurando um frasco.
+
+— *"Olha só o que eu achei! Tava difícil pegar isso lá dentro, tava muito escuro!"* — disse, animado, mostrando uma poção de regeneração.
+
+O grupo ficou em silêncio.
+
+— *"Isso foi... excêntrico."* — murmurou **Galadriel**.
+
+**Raz**, ainda animado, pegou o mímico por baixo e começou a sacudi-lo vigorosamente — *"Vai que tem mais alguma coisa aqui!"*
+
+Dito e feito: mais três frascos caíram da criatura, totalizando quatro poções. O monstro, já tonto de tanto ser chacoalhado, vomitou um pedaço de armadura antes de sair correndo pelo labirinto.
+
+— *"E foi assim que saqueamos um mímico."* — concluiu **Raz**, satisfeito.
+
+O grupo seguiu viagem.
+
+### A Cabana do Gnomo
+Após mais alguns minutos, chegaram a uma área aberta dentro do labirinto. No centro, uma cabana simples e pequena, iluminada por uma luz amarelada.
+
+— *"Será que encontramos o esconderijo do mago?"* — perguntou **Sr. Bigodes**.
+
+— *"Ou talvez seja mais um truque..."* — ponderou **Galadriel**.
+
+**Raz** e **Sr. Bigodes** decidiram investigar os arredores, mas não encontraram nada suspeito. Enquanto isso, **Nicol Bolas** e **Sr. Bigodes** bateram na porta.
+
+A madeira rangeu, e um pequeno gnomo de barba desgrenhada e uma caneca de cerveja apareceu na entrada — *"Opa! Quem são vocês?"*.
+
+O interior da cabana era pequeno... pequeno até demais. Quando olharam melhor, perceberam que a porta levava direto para uma latrina.
+
+— *"Você... vive aqui?"* — perguntou **Sr. Bigodes**, confuso.
+
+— *"Ah, sim, sim! O mago me deixou aqui. Ele me dá comida e cerveja pelas vinhas!"* — disse o gnomo, dando um gole em sua bebida.
+
+— *"E você sabe onde encontrar o mago?"* — perguntou **Nicol Bolas**.
+
+O gnomo coçou a cabeça.
+
+— *"Hmm... Ele me falou pra dizer algo se alguém viesse perguntar por ele... o que era mesmo?"*
+
+Ele fez uma pausa, pensou por um momento e então estalou os dedos.
+
+— *"Lembrei! Ele disse: 'Por favor, saiam daqui. Sumam. Nunca mais apareçam. Eu estou aposentado.'"*
+
+O grupo trocou olhares — *"Só isso?"*
+
+O gnomo deu de ombros e tomou mais um gole.
+
+**Galadriel** então tocou no ombro do pequeno ser. No instante em que o fez, o gnomo estremeceu, seus olhos brilharam, e ele murmurou em um tom diferente, como se estivesse repetindo palavras de outra pessoa:
+
+*"Sou uma sombra sem corpo, um sussurro sem voz,
+Mantenho mistérios entre nós.
+Se me disser, deixo de ser,
+Mas se me guardar, posso crescer"*
+
+O grupo refletiu por um momento. Enquanto isso, **Raz**, entediado, enfiou a mão nas vinhas e puxou um copo de cerveja, imitando o gnomo e ficando maravilhado com isso.
+
+— *"Já sei!"* — exclamou **Nicol Bolas**. — *"É 'segredo'."*
+
+Uma voz distante ecoou na mente de todos:
+
+*"O mago os chama. Mas o caminho... é pela latrina."*
+
+O grupo ficou em silêncio por um instante.
+
+— *"Pera... o quê?"* — perguntou **Sr. Bigodes**, franzindo o cenho.
+
+**Raz**, impaciente, arrancou a porta da latrina e olhou para dentro.
+
+— *"É um buraco nojento cheio de..."* — ele se interrompeu, respirou fundo e olhou para o gnomo. — *"Você sabe que deveria limpar isso, né?"*
+
+O gnomo resondeu inocentemente — *"Precisava?"* — enquanto coçava sua cabeça.
+
+— *"Por todos os deuses..."* — resmungou **Galadriel**.
+
+Sem paciência, **Raz** conjurou uma rajada de vento, criando uma explosão de ar que destruiu a latrina e espalhou sujeira para todos os lados. 
+
+O gnomo apenas riu e pegou mais um gole de sua cerveja. — *"Melhor agora?"*
+
+**Raz** tapou o nariz e pulou sem pensar duas vezes.
+
+Para sua surpresa, ao atravessar a latrina, ele não caiu em um esgoto—mas sim em um lago subterrâneo de águas cristalinas. Emergiu molhado, tossindo, mas ileso. Quando olhou ao redor, percebeu que estava dentro de uma caverna iluminada por cristais mágicos.
+
+No entanto, ao sair da água e se olhar, sua roupa não estava molhada... e sim coberta de algo marrom e viscoso.
+
+Sem pensar duas vezes, sacou um sabonete da mochila.
+
+Momentos depois, **Galadriel** tentou sair da água, mas **Raz** o impediu, estendendo o sabonete para ele — *"Você não sai daí até se lavar."*
+
+Do lado de cima, **Nicol Bolas** e **Sr. Bigodes** hesitavam em descer.
+
+— *"Isso... eu acho que não vai funcionar."* — disse **Sr. Bigodes**, observando **Nicol Bolas** cavar um túnel alternativo com um pedaço de madeira.
+
+O gato soltou um longo suspiro, tapou o nariz com as patas e se jogou na latrina.
+
+Assim que emergiu no lago subterrâneo, foi recebido por **Raz** segurando o sabonete em sua direção.
+
+— *"Gatos não se limpam assim!"* — protestou **Sr. Bigodes**, tentando se esquivar.
+
+— *"Eu não me importo. Agora se limpam."* — disse **Raz**, determinado.
+
+Enquanto o gato se debatia inutilmente, **Nicol Bolas** continuava cavando lá em cima, determinado a encontrar um jeito de não pular naquilo.
+
+O gnomo, observando tudo com sua caneca de cerveja na mão, revirou os olhos e simplesmente empurrou **Nicol Bolas** no buraco.
+
+No último instante antes de cair, o boneco conseguiu ver algo inacreditável: a latrina estava se reconstruindo magicamente a uma velocidade absurda.
+
+Ele caiu de cabeça na caverna, coberto da mesma substância que os outros.
+
+**Raz** não teve piedade. — *"Você também, Aqui está o sabonete."
+
+O boneco de madeira apenas cruzou os braços e aceitou seu destino.
+
+### A Emboscada das Sombras
+Ao sairem da caverna uma pequena clareira aberta apareceu diante deles. Ao longe, uma luz tremulava, revelando o contorno de uma casa de madeira simples. O grupo se aproximava com cautela quando **Galadriel** sentiu algo estranho: uma sensação fria e sufocante nas costas, como se estivesse sendo observado.
 
 — *Cuidado* — murmurou o elfo.
 
