@@ -65,7 +65,7 @@ A água, tranquila demais, refletia o céu como um espelho imóvel, mas algo par
 
 E então, o ataque veio.
 
-## O Primeiro Encontro
+### O Primeiro Encontro
 Um estrondo rasgou a superfície do lago quando uma serpe marinha emergiu, rompendo a calmaria com um rugido ameaçador. Sua pele escamosa, de um verde profundo, brilhava sob a luz do sol, e seus olhos ferozes refletiam um instinto de sobrevivência desesperado.
 
 **Raz** foi o primeiro a reagir. Com um salto ágil para fora da carroça, ergueu sua espada com ambas as mãos e avançou — *Finalmente algo difenrete*.
@@ -115,7 +115,7 @@ De dentro da mata, quatro serpes marinhas, menores e mais ágeis, avançaram con
 
 — *Eu cuido do acampamento! Acabem com o monstro do lago!* — gritou **Raz**, assumindo uma posição defensiva enquanto seu grupo se dividia para enfrentar a ameaça dupla.
 
-## A Batalha no Lago
+### A Batalha no Lago
 ### Raz contra as serpes marinhas
 As quatro serpes, cobertas por suas escamas tão brilhantes como o reflexo da lua na água, avançaram com rapidez. De suas bocas, rajadas de raio explodiram em direção a **Raz**, que reagiu erguendo uma parede de vento com um movimento rápido de sua espada. O vento aparou os ataques elétricos, criando estalos no ar.
 
@@ -180,7 +180,7 @@ Antes que pudessem reagir, passos ecoaram atrás deles. **Raz** surgiu no túnel
 
 Mas antes que pudessem responder, algo se moveu rápido demais para ser evitado. Uma sombra saltou do teto da caverna — outro **Raz!** O falso lagarto desceu com as garras expostas, atingindo **Papabundus** pelas costas e o lançando contra o chão. Com um brilho esverdeado e uma aura mágica pulsante, a criatura assumiu sua verdadeira forma: um dos dragões verdes estava disfarçado o tempo todo. Agora, lado a lado com seu irmão, ele exibia um sorriso predatório.
 
-## O Combate com os Dragões Jovens
+### O Combate com os Dragões Jovens
 Os dragões pareciam tratar a luta como um jogo cruel, avançando como crianças brincando com a comida. Suas presas buscavam qualquer alvo que estivesse em seu alcance, e suas garras arranhavam o chão enquanto corriam em direção ao grupo.
 
 **Papabundus** e **Raz**, envoltos por suas cascatas arcanas, reagiram rapidamente. Usando de suas forças, eles seguraram os dragões, contudo a investida das criaturas era incessante. Os jovens dragões avançavam novamente, como se nunca se cansassem. 
