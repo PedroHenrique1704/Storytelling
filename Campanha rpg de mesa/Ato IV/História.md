@@ -1115,3 +1115,186 @@ O general franziu a testa, considerando a situação.
 Por fim, cruzou os braços.
 
 — *Vocês têm minha atenção. Expliquem tudo.*
+
+### A receita
+
+* **Ingredientes:**
+
+* Frasco Mágico *(localizado na minha sala mágica)*
+* Água benta
+* Farinha
+* Sangue do ritual sagrado
+* Uma porção de mana  *(a ser infundida)*
+
+* **Modo de preparo:**
+
+1. **Preparação do altar**: Certifique-se de que o altar está limpo e livre de qualquer resíduo de sacrifícios anteriores. A pureza do local é essencial para evitar contaminações espirituais.
+
+2. **Acalmar a mente**: Antes de qualquer mistura, sente-se diante do altar e recite o cântico de conexão com Demodras ("Oh, Guardião das Escamas Eternas, guia meu coração e mãos") por três minutos.
+
+3. **Ativar o frasco mágico**: Leve o frasco ao centro do altar e toque nele enquanto murmura as palavras gravadas em sua base. Isso ativará sua capacidade de absorver e transformar os ingredientes.
+
+4. **Adicionar água benta**: Despeje lentamente a água benta no frasco. Observe como ela brilha — isso indica que o ritual está sendo aceito.
+
+5. **Misturar a farinha**: Pegue uma pequena quantidade de farinha e misture com a água no frasco. Mexa com uma colher de prata, sempre no sentido anti-horário, para simbolizar o fluxo inverso do tempo.
+
+6. **Queimar incenso de mirra**: Enquanto mistura os ingredientes, acenda um incenso de mirra e deixe a fumaça envolver o frasco. A mirra fortalecerá a ligação com o plano espiritual.
+
+7. **Adicionar o sangue do ritual**: Com cuidado, derrame o sangue sagrado no frasco. Faça isso devagar, para que os ingredientes se harmonizem.
+
+8. **Infundir mana**: Concentre-se profundamente, canalizando mana diretamente de suas mãos para o frasco. A energia deve ser liberada em pulsos suaves até que uma luz esverdeada preencha o recipiente.
+   
+9. **Desenhar o sigilo de Demodras**: Usando o restante do sangue, desenhe o sigilo de Demodras no chão ao redor da fonte. Certifique-se de que o desenho é perfeito, pois um erro poderia causar um colapso mágico.
+
+10. **Agitar o frasco**: Quando todos os ingredientes estiverem misturados, tampe o frasco e agite-o vigorosamente por exatamente 33 segundos. O tempo é essencial.
+
+11. **Entoar o juramento final**: Posicione-se diante da fonte, segure o frasco acima de sua cabeça, e recite o juramento: "Pelo sangue, pela mana, e pela luz eterna, conceda-me tua bênção, ó Dragão de Escamas Eternas."
+
+12. **Despejar a mistura na fonte**: Abra o frasco e despeje o conteúdo diretamente na água da fonte. Aguarde até que a água brilhe com intensidade.
+
+## Os preparativos
+**Drax** caminhava a passos largos pelo castelo, sua expressão impaciente e intimidadora. Ele se aproximou dos servos que trabalhavam na cozinha real e bateu o punho na mesa.
+
+— *Rápido, preciso de incenso de mirra, farinha, uma colher de prata e quatro sanduíches para a viagem!*
+
+Os trabalhadores nem ousaram questioná-lo. Em poucos segundos, os ingredientes foram entregues.
+
+Enquanto isso, **Nicol Bolas** providenciava uma carroça para agilizar a viagem.
+
+Prontos, o grupo montou na carroça e partiu, cruzando os portões da cidade e avançando rumo à caverna oculta.
+
+No caminho, **Sr. Bigodes** cutucou **Drax** com o cotovelo — *Chamamos **Tif**, **Raz** e **Galadriel**?*
+
+— *Galadriel veio?* — Perguntou **Nicol Bolas** surpreso.
+
+— *Veio, mas ficou trancado no quarto estudando plantas medicinais regionais*. — respondeu **Sr. Bigodes**, dando de ombros.
+
+**Drax bufou** — *Adoraria chamar seus amigos e aquela raposa, mas não temos tempo. Temos que ir.*
+
+Todos assentiram, cientes da urgência.
+
+Em pouco mais de uma hora, chegaram à caverna.
+
+## A Porta Selada e o Ritual
+O grupo avançou rapidamente pelo interior da caverna, iluminando o caminho com tochas. O salão principal estava intacto, com a fonte mágica ao centro e a porta selada no fundo.
+
+**Drax** não perdeu tempo. Ele segurou a chave mágica, enfiando-a na fenda no centro da porta.
+
+Um clarão dourado percorreu as inscrições na pedra antes de um estalo profundo ecoar pela câmara. A magia se dissipou, e a passagem se abriu lentamente.
+
+Então, algo saiu voando da escuridão.
+
+— *Mímico!* — gritou **Nicol Bolas**, instintivamente levantando as mãos para realizar um ataque.
+
+O baú-vivo saltou sobre **Drax**, suas presas se abrindo para engolir seu rosto inteiro.
+
+Mas **Drax** foi mais rápido.
+
+Com um único soco, reduziu a criatura a uma massa de tábuas e dentes despedaçados.
+
+**Drax** resmungou — *Sem tempo, irmão.* — enquanto passva seus dedos sobre os nós dos punhos
+
+Com a ameaça eliminada, **Drax** pegou o frasco mágico que estava sobre um pequeno altar dentro da sala secreta.
+
+— *Pegamos tudo. Vamos acabar com isso de uma vez.*
+
+**Nicol Bolas** correu para pegar o sangue do ritual, enquanto **Sr. Bigodes** limpava o chão ao redor da fonte. 
+
+**Gorath** se ajoelhou próximo à água, fechando os olhos e recitando o cântico de Demodras. — *Oh, Guardião das Escamas Eternas, guia meu coração e mãos…*
+
+A atmosfera se transformou.
+
+O ar ficou pesado, carregado de uma energia antiga e densa.
+
+**Nicol** Bolas ativou o frasco mágico, infundindo nele uma leve carga de mana, e então o entregou a **Gorath**.
+
+A mistura começou.
+
+**Nicol Bolas** despejou a água benta no frasco.
+
+**Sr. Bigodes** adicionou a farinha, resmungando internamente sobre o glúten.
+
+**Gorath** mexeu a mistura com uma colher de prata, sempre no sentido anti-horário.
+
+**Drax**, ao lado, queimava o incenso de mirra, deixando que a fumaça envolvesse a fonte.
+
+Quando **Nicol Bolas** adicionou o sangue do ritual, o chão tremeu violentamente.
+
+A fonte começou a brilhar em tons de verde e vermelho, e um calor sobrenatural emanou da mistura.
+
+**Gorath** e **Nicol Bolas** infundiram sua mana no frasco.
+
+**Sr. Bigodes** rapidamente desenhou os círculos mágicos de Demodras ao redor da fonte, garantindo que estivessem alinhados com os símbolos antigos esculpidos na pedra.
+
+O frasco agora pulsava com uma energia ardente, calor suficiente para derreter carne comum ao toque.
+
+Mas **Drax** não era comum.
+
+Ele agarrou o frasco com as mãos nuas, resistindo ao calor infernal, e o sacudiu vigorosamente por exatos 33 segundos.
+
+Então, ergueu-o acima da cabeça e entoou as palavras finais — *Pelo sangue, pela mana e pela luz eterna, conceda-me tua bênção, ó Dragão de Escamas Eternas!*
+
+E despejou o líquido na fonte.
+
+Uma explosão de luz vermelha e dourada irrompeu da água.
+
+O impacto foi tão violento que todos foram lançados para trás.
+
+**Drax** se segurou no cabo de seu martelo, resistindo à força mágica. Os outros foram arremessados cerca de cinco metros, caindo com força no chão de pedra.
+
+Quando a luz desapareceu, a água da fonte havia sumido.
+
+No fundo seco, uma escadaria em espiral descia para as profundezas.
+
+**Sr. Bigodes** se levantou, espanando a poeira do pelo — *Devemos ir?*
+
+**Gorath** disse com uma voz baixa — *E temos outra escolha?*
+
+**Drax** esticou os ombros e deu o primeiro passo escada abaixo.
+
+## A Câmera Esquecida
+A descida foi curta. O grupo rapidamente chegou ao nível inferior, onde um corredor sombrio se estendia à frente.
+
+As pilastras ao longo das paredes emanavam uma fraca luz azulada, iluminando as celas quebradas dos dois lados. Ossos jogados pelo chão indicavam que muitos haviam perecido ali.
+
+Mas não era a morte que mais chamava a atenção.
+
+Era o trono.
+
+Ao fundo do salão, um trono colossal de pedra negra se erguia. Ele era adornado com símbolos arcanos, exalando uma presença maligna e sufocante.
+
+Então, algo se moveu.
+
+Uma figura sombria começou a se formar diante do trono.
+
+No início, era apenas uma silhueta disforme, mas logo um cavaleiro negro tomou forma, sua armadura completamente negra e opaca.
+
+Não havia alma ali.
+
+Não havia vida.
+
+Apenas uma presença avassaladora.
+
+Ele fincou seu cajado no chão e sua voz reverberou pelo salão — *Por Demodras... vocês não sairão daqui vivos hoje*
+
+O grupo instintivamente assumiu posições de combate.
+
+Sr. Bigodes suspirou profundamente — *Ah, maravilha… Tudo que eu queria depois de ser trancado inconsciente por horas e passar uma hora de carroça era lutar com uma criatura dessas…*
+
+**Drax** não esperou.
+
+Ele avançou, mirando um golpe direto.
+
+Mas o cavaleiro moveu-se como uma sombra.
+
+Ele desviou o ataque com facilidade, e em milésimos de segundo, sua espada se transformou em um cajado.
+
+Uma explosão de magia acertou **Drax** no peito, jogando-o violentamente para longe.
+
+Os olhos do grupo se arregalaram.
+
+— *Ele não é só um espadachim...* — murmurou **Nicol Bolas** — *Ele também é um mago poderoso.*
+
+
+
+### O Combate Começa
