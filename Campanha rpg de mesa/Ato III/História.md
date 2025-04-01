@@ -65,14 +65,14 @@ Com a arena limpa  o rei anunciou  — *Bravos guerreiros! Vocês sobreviveram a
 
 Enquanto os competidores se retiravam, cada um deles carregava as marcas da batalha, e uma determinação ardente para continuar. A multidão, agora animada para a segunda etapa, mal podia esperar para ver os confrontos épicos que o dia seguinte prometia trazer.
 
-## Preparativos e Intrigas
+### Preparativos e Intrigas
 Após a primeira etapa, os competidores tiveram duas horas para descansar. No subsolo da arena, a atmosfera era tensa. Alguns lutadores optaram por meditar, enquanto outros afiavam suas armas ou ajustavam suas réplicas.
 
 **Drax**, porém, parecia mais interessado em desvendar o funcionamento da arena. Ele aproximou-se de um guarda de postura rígida, trocando algumas palavras em tom casual.
 
 O guarda, inicialmente hesitante murmurou — *Vejo que busca mais do que força para vencer. Há caminhos ocultos e segredos nesta arena que os olhos comuns não percebem. Posso redesenhar parte do campo para lhe conceder uma vantagem... por um preço, é claro.*  — revelando mais do que devia.
 
-**Drax** rindo disse — *Manterei isso em mente, mas não sou de depender de terreno para esmagar meus inimigos. Boa sorte com seu "negócio".* — Enquanto dava um tapinho no ombro do guarda.
+**Drax** rindo disse — *Manterei isso em mente, antes do combate eu converso com você novamente...* — Enquanto dava um tapinho no ombro do guarda.
 
 **Drax** retornou ao seu descanso, mantendo a informação consigo.
 
@@ -172,11 +172,32 @@ A multidão explodiu em aplausos e risos com a observação de **Drax**, que erg
 ### **Segundo Duelo: Tif contra Sylas Nightbreeze**
 A arena permaneceu a mesma, com plataformas flutuantes e lava fervente. **Tif**, a raposa atiradora, enfrentava **Sylas Nightbreeze**, o ágil elfo sombrio.
 
+
 Quando a trombeta soou, **Tif** rapidamente saltou para uma plataforma adjacente, tentando ganhar vantagem de posição. Mas, em um movimento inusitado, ele escorregou em sua própria cauda.
 
 A plateia ofegou ao ver **Tif** deslizar pela borda, caindo diretamente na lava. A magia do campo o protegeu de ferimentos fatais, mas a derrota foi clara.
 
 Embora muitos espectadores ficassem indignados com o erro bobo, outros aplaudiram, considerando que o incidente vingava a controversa vitória de **Tif** sobre **Gorath** no dia anterior.
+
+### Aposta nas Sombras
+Irritado por sua eliminação, mas ainda pensando em maneiras de lucrar com o torneio, **Tif** decidiu ir até a área de apostas. Se não poderia vencer na arena, pelo menos poderia sair com os bolsos cheios.
+
+O salão de apostas estava movimentado, com gritos e moedas trocando de mãos a cada instante. O cheiro de bebida forte e fumaça pairava no ar. Caminhando com discrição, **Tif** notou algo peculiar: alguns participantes do torneio estavam ali, apostando em seus próprios combates. Mais preocupante ainda, alguns guardas da arena, que supostamente deveriam garantir a justiça do torneio, estavam entre os apostadores.
+
+Seus olhos logo captaram um detalhe ainda mais alarmante—o chefe da segurança da arena estava lá, rindo enquanto embolsava uma quantia generosa de ouro.
+
+Sentindo o cheiro de oportunidade, **Tif** desviou sua rota, movendo-se silenciosamente por trás do guarda. Com a destreza de um verdadeiro ladrão, seus dedos ágeis deslizaram pela bolsa do homem sem que ele notasse.
+
+Quando saiu do salão, **Tif** contou o montante furtado: 200 peças de ouro. Um pequeno prêmio de consolação por sua humilhante derrota.
+
+Antes de sair completamente, algo o fez parar. No canto do estabelecimento, um homem trajando uma armadura nobre, adornada com insígnias de alto escalão, estava observando tudo. Ele viu **Tif** roubando.
+
+Por um momento, os dois se encararam.
+
+**Tif** não demonstrou nervosismo. Apenas ergueu o queixo e acenou de leve com a cabeça, como quem reconhece outro jogador na mesa. O homem fez o mesmo gesto em resposta—sem acusação, sem reprovação. Apenas um reconhecimento silencioso.
+
+Sem mais delongas, **Tif** saiu dali e seguiu para assistir ao próximo combate do torneio, agora um pouco mais rico e ainda mais intrigado com a corrupção por trás da competição.
+
 
 ### **Terceiro Duelo: Sr. Bigodes contra Garrok Bloodfang**
 A arena mudou novamente, desta vez simulando um mar revolto, com plataformas instáveis balançando sobre ondas gigantescas. **Sr. Bigodes**, o ágil padeiro, enfrentava **Garrok Bloodfang**, o bárbaro orc.
@@ -190,11 +211,11 @@ Com as plataformas balançando violentamente, **Sr. Bigodes** percebeu que não 
 ## Um anúncio surpresa: Sylas Desclassificado
 Antes do próximo combate, o rei subiu ao palanque com uma expressão séria.
 
-— ***Sylas Nightbreeze** foi preso por participar de um esquema de apostas e tentar subornar nossos guardas. Sua desclassificação é imediata!*
+— *O comandante da guarda real descobriu um esquema de apostas ilegais dentro do torneio. **Sylas Nightbreeze** foi preso por envolvimento e por tentar subornar nossos guardas. Sua desclassificação é imediata!*
 
 Com **Sylas** fora, restavam apenas dois competidores: **Drax** e **Garrok Bloodfang.**
 
-## A Grande Final: Drax contra Garrok Bloodfang
+### A Grande Final: Drax contra Garrok Bloodfang
 A arena assumiu sua forma mais simples: um campo plano e liso, sem distrações ou obstáculos. **Drax**, visivelmente cansado, enfrentava **Garrok**, que avançou confiante, pronto para esmagar o anão.
 
 **Drax**, porém, não deu tempo para uma luta prolongada. Ele avançou com precisão, aplicando golpes calculados enquanto evitava os ataques pesados de **Garrok**.
@@ -211,7 +232,7 @@ O rei declarou **Drax** o grande campeão, e a multidão rugiu em aprovação en
 
 **Drax** ouviu com atenção, sua expressão acabou endurecendo. Ele sabia que não poderia realizar essa tarefa sozinho e teria que escolher cuidadosamente seus companheiros.
 
-### A Escolha de Drax
+## A Escolha de Drax
 O rei pediu os nomes dos membros de seu grupo, e **Drax**, após um momento de reflexão, declarou:
 
 * — ***Sr. Bigodes**, pela agilidade e... o pão sem glúten, que parecia intrigá-lo.*
@@ -237,7 +258,7 @@ O rei, irritado, questionou **Drax** — *Deseja escolher outra pessoa para ocup
 .
 Os demais concordaram sem falar nenhuma palavra, apenas balançando sua cabeça.
 
-## Preparativos para a Jornada
+### Preparativos para a Jornada
 Cada um do grupo recém formado recebeu 5 mil moedas de ouro para se equipar e foi informado sobre a localização do artefato. O caminho mais rápido seria pela rota das montanhas, um trajeto perigoso, mas que lhes permitiria cumprir o prazo de dez dias dado pelo rei.
 
 o grupo então com suas tarefas divididas, planejavam sair na manhã seguinte.
@@ -264,7 +285,7 @@ Ao olhar para dentro da carroça, **Sr. Bigodes** foi surpreendido pelo goblin, 
 
 **Gorath**, que havia permanecido na frente, percebeu algo ainda mais preocupante. — *Temos um problema* — murmurou.
 
-## A Armadilha
+### A Armadilha
 Logo à frente, uma gigantesca parede de pedras bloqueava o caminho. Era uma armadilha. Goblins começaram a surgir de todas as direções, escalando as montanhas ao redor e aparecendo por trás da carroça. No topo de uma colina, um goblin maior, provavelmente o líder, comandava os ataques com gritos e gestos frenéticos.
 
 **Gorath**, com sua força e coragem habituais, reuniu seu Ki em um único golpe poderoso. Ele atacou a parede de pedras, que explodiu em uma chuva de escombros, revelando a entrada de uma caverna logo à frente.
@@ -291,7 +312,7 @@ Após uma luta árdua, **Drax** finalmente conseguiu decapitar o goblin líder c
 
 — *Segurem-se!* — gritou **Gorath**, enquanto carregava **Drax** nos ombros e corria para dentro da caverna.
 
-## Refúgio Temporário
+### Refúgio Temporário
 Na da caverna, o grupo encontrou uma porta trancada à esquerda. **Tif**, com sua habilidade em abrir fechaduras, rapidamente destravou a porta, revelando um cômodo repleto de baús, alguns abertos, outros fechados.
 
 Sem perder tempo, o grupo entrou e fechou a porta, enquanto **Gorath** a barricava com placas e baús para garantir sua segurança.
@@ -361,7 +382,7 @@ O goblin gigante, vendo que a vitória escapava de suas mãos, avançou em dire�
 
 Sem opções, o goblin tentou um ataque suicida, mas **Gorath**, com reflexos impecáveis, o paralisou em seu movimento final. O monstro caiu no chão e acabou se implodindo.
 
-## O Debate sobre a Criança
+### O Debate sobre a Criança
 Com a ameaça eliminada, o grupo voltou sua atenção para o menino desacordado na cela.
 
 — *Deixa ele aí. Na volta a gente pega* — disse **Tif**, cruzando os braços com visível desprezo — *"É só um humano, e crianças não são exatamente úteis.*
